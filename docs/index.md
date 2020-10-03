@@ -1,4 +1,10 @@
-## Hello!
+# Hello!
+
+# 3 October 2020
+In the year 2000, all I wanted, as a Black girl Radiohead fan, was to live with them out at these extremities. The woozy keyboard swirl and processed vocal gibberish of Everything in Its Right Place, the album’s opening track, announced the very opposite: all was about to be thrown thrillingly out of whack. The sublime Treefingers is a glimmering object that spins slowly around the universe; the spectacular plaintive sorrow of Motion Picture Soundtrack was an invitation to dive into a cinematic dreamscape of heartbreak. Why not live in these worlds, I thought, with the disaster of the US presidential election recount unfolding deep into the fall?
+
+What makes Radiohead’s music such a radical endeavour to me are these deeply introspective other worlds, built as bulwarks against the tyrannies of everyday life (a world where “we’ve got heads on sticks / you’ve got ventriloquists,” as Thom Yorke sings in nightmarishly garbled vocals on the title track). Kid A’s recurring lyrical insistence on “slipping away” is nothing new to rock masculinity, an anxious nod to the stubborn will to “not fade” dating back to the genre’s earliest days. But it is also a gorgeous, revolutionary invitation to exist in an elsewhere, in a way that resonates with what scholars often refer to as the Black Radical tradition in music.
+# Daphne A Brooks - Why Radiohead are the Blackest white band of our times - [The Guardian](https://www.theguardian.com/music/2020/oct/02/why-radiohead-are-the-blackest-white-band-of-our-times)
 
 
 
