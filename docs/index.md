@@ -10,7 +10,7 @@ Daphne A Brooks - Why Radiohead are the Blackest white band of our times - [The 
 
 Before protest there is a oppression, lack of popular support, and the hard work of awareness-raising. After that comes the high-octane action, the moral clarity – and allies hop on board. But once the first blood rush of protest subsides, the people who are still on the streets are mocked by their erstwhile allies, impatient to find fault with the movement and get back to their lives without any further disruption. What was universally celebrated a few weeks ago is now faintly embarrassing: too radical, too combative, almost comically unrealistic. You might think of the trajectory of the Black Lives Matter protests so far as like that famous quote misattributed to Gandhi, but this time in reverse: first you win, then they fight you, then they laugh at you, then they ignore you.
 
-Nesrine Malik - It seems black lives don't matter quite so much, now that we've got to the hard bit - [The Guardian](https://www.theguardian.com/commentisfree/2020/jul/06/black-lives-matter-protests-change-demands
+Nesrine Malik - It seems black lives don't matter quite so much, now that we've got to the hard bit - [The Guardian](https://www.theguardian.com/commentisfree/2020/jul/06/black-lives-matter-protests-change-demands)
 
 10 May 2020
 
