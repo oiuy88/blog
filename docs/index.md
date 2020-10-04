@@ -175,3 +175,27 @@ Studying early childhood behavior, [Karl Groos] noted infants' delight at being 
 However, as the long process of compulsory purchase, eviction and demolition was under way, between 1890 and 1895, it became clear that no philanthropic company was willing to come forward. And so, very reluctantly, the home secretary permitted the LCC to construct the dwellings, on the understanding that these would quickly be sold on to the charitable sector. The LCC was not to act as a landlord. Antipathy towards state intervention in housing was put most colourfully in Parliament by the member for Portsmouth, who told the house that such a thing was “monstrous”, and that “if such a principle were admitted, I do not know where it will stop. The next demand made of Parliament might be to provide clothing, if not carriages and horses, for the poor”.  
 **Sarah Wise - The battles of Boundary Street – [The Planner](https://www.theplanner.co.uk/features/the-battles-of-boundary-street)**
 
+**31 March 2018**  
+When I was in [country in question] last [week/month/August], I was amazed by the [people’s basic desire for a stable life/level of Westernization for such a closed society/variety of the local cuisine], and that tells me two things. It tells me that the citizens of [country in question] have no shortage of [courage/potential entrepreneurs/root vegetables], and that is a good beginning to grow from. Second, it tells me that people in [country in question] are just like people anywhere else on this great globe of ours.  
+**Michael Ward - Create your own Thomas Friedman op-ed column - [McSweeney’s](https://www.mcsweeneys.net/articles/create-your-own-thomas-friedman-op-ed-column)**
+
+**31 March 2018**  
+And it may surprise you to learn – given the obloquy that subsequently descended on these planners’ fancies – that they [aerial walkways] worked.  One resident recalls a trip to the local shops – along those walkways – taking hours to complete as she stopped to talk to everyone she met, and she knew nearly everyone.  The corridors were also a place to meet and socialise; doors left unlocked with children playing in one flat but regularly checked on by neighbours.
+
+This was true, apparently, even of the now reviled tower blocks.  People met in lifts and on landings. Fiona, my guide to the estate, living then in Aragon Tower, remembers a close and friendly community – ‘you could knock on any door’ – and recalls too how scrupulously tenants maintained the common areas according to a rota issued by the estate caretaker.
+
+(…) If you know the Pepys Estate or its sometime reputation, you’ll know there’s one other thing I haven’t mentioned – race.  The Estate was in its early years and for some time an almost exclusively white estate, this the result of a more or less formal policy operated by the GLC.  As one former council housing officer describes”
+
+“It wasn’t as simple as ‘We don’t want black people living there’.  It was more like an assumption that black and white would rather live separately from one another.  So, as you go down the Old Kent Road you can see some estates are white and others are black or mixed. It didn’t happen by accident. Housing officers just didn’t allocate black people to [the Pepys Estate].”  
+**The Pepys Estate, Deptford: from ‘Showcase’ to ‘Nightmare’ – [Municipal Dreams](https://municipaldreams.wordpress.com/2015/08/11/the-pepys-estate-deptford-showcase-to-nightmare/)**
+
+**16 February 2018**  
+Il s’agissait d’une loi permettant de poursuivre, voire d’emprisonner, ceux qui hébergent et aident des étrangers en situation jugée illégale. Ce « délit d’hospitalité » (je me demande encore qui a pu oser associer ces mots) est passible d’emprisonnement. Que devient un pays, on se le demande, que devient une culture, que devient une langue quand on peut y parler de « délit d’hospitalité », quand l’hospitalité peut devenir, aux yeux de la loi et de ses représentants, un crime ?
+
+(…) Les frontières ne sont plus des lieux de passage, ce sont des lieux d’interdiction, des seuils qu’on regrette d’avoir ouverts, des limites vers lesquelles on se presse de reconduire, des figures menaçantes de l’ostracisme, de l’expulsion, du bannissement, de la persécution.  
+**Jacques Derrida - Quand j’ai entendu l’expression “délit d’hospitalité”… (1996) - [Le Monde](https://www.lemonde.fr/idees/article/2018/01/19/ce-que-jacques-derrida-pensait-du-delit-d-hospitalite-en-1996_5243797_3232.html)**
+
+**16 February 2018**  
+But caution about the potential of our cities and suburbs as wildlife habitat is probably still a good idea. One danger is that these landscapes may become “ecological sinks” — that is, places where excess individuals from undisturbed habitat can survive, but not ultimately increase. Having straw-headed bulbuls in central Singapore does not, for instance, ensure survival of the species. Success with some more visible species may also blind us to broader but less obvious declines in other species. European rewilding, for instance, has not been rewilding for its insect population.  
+**Richard Conniff - Habitat on the Edges: Making room for wildlife in an urbanized world - [Yale Environment 360](https://e360.yale.edu/features/habitat-on-the-edges-making-room-for-wildlife-in-an-urbanized-world)**
+
