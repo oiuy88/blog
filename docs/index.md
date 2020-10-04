@@ -259,3 +259,55 @@ In Tucson, Arizona, for example, house finches have developed longer and wider b
 A cynical view of Crowdtap is that it’s just another form of social media marketing — people being paid to tell their friends to buy things. But then you realize that these people don’t have large social media followings (in fact, Crowdtap users I interviewed said they create throwaway social media accounts to use exclusively for Crowdtap). And sharing content on social media isn’t even required — the default option is to share, but you get your points either way. Crowdtap passes members’ responses on to brands, but otherwise nobody is listening to what they say. No one is responding. There’s very little about this that might be called social. Imagine someone wandering alone in a giant desert, shouting “I love Big Macs!” into the sky. That’s Crowdtap.  
 **Daniel Carter - The only job a robot couldn’t do – [The Outline](https://theoutline.com/post/2393/the-only-job-a-robot-couldn-t-do)**
 
+**10 October 2017**  
+3 stars: Not compatible with older Macbook Pros  
+The MagSafe connector on this power adaptor does not fit older models of MacBook Pro. This newer connector is marginally smaller and does not fit snugly into the socket on the computer. I bought two of these at the Apple Store, Regent Street which didn’t, and I was eventually advised to buy the older part number NA938B for my January 2008 MBP. Check before you buy!  
+Written by Nick S from City of Westminster 19-July-2010  
+489 of 579 people found this useful
+
+5 stars: Fully compatible with older MacBook Pros  
+It works fine, and fits exactly the MagSafe power port on my late-2007 15-inch MacBook Pro, even though the computer was originally supplied with a “T” style MagSafe connector. Buy with confidence.  
+Written by WILLIAM B H from Cambridge 02-Jan-2011  
+267 of 343 people found this useful
+
+**10 October 2017**  
+![The cycle home](https://oiuy88.files.wordpress.com/2017/10/image1.jpg?w=620&h=465 "The cycle home")
+
+**9 October 2017**  
+Winter of discontent
+
+To write your killer draft, ask yourself:  
+-Do I have a strong, emphathetic opening that taps into my readers’ pain points?
+-Do I acknowledge my readers’ dreams, desires, fears, and frustrations throughout the post?
+-Have I engineered irresistible subjeads to keep people reading instead of just scanning?
+-Have I incorporates the language my audience uses to help them connect with the content?
+-Have I used short paragraphs and rich formatting (e.g. bullet points) to improve readability?
+-Do I have a powerful closing that inspires my readers to take an immediate next step?
+
+**7 October 2017**  
+Achanaca  
+![Diderot notes](https://oiuy88.files.wordpress.com/2017/10/image.jpg?w=300 "Diderot notes")
+
+**5 October 2017**  
+All Microsoft Windows Startup and showdown sounds including beta's or prototypes HQ  
+632,093 views
+
+**16 August 2017**  
+But the part of the movement that is willing to go all the way is still very small. The most popular figure in U.S. politics right now is Bernie Sanders—a Jewish socialist—while Trump’s popularity is at an all-time low. A purely oppositional politics to the far right will be a game of eternal whack-a-mole if the only vision of the future to be found in the aimless desert of meaning created by the political establishment is the nightmarish Silicon Valley model of modernity. The creation of a politics that offers something meaningful, beautiful, hopeful, new, and utopian is the project for which there is no shortcut. To take the bigger picture from this sorry story, it should be the job of our generation to create it.  
+**Angela Nagle – Goodbye Pepe - [The Baffler](https://thebaffler.com/latest/goodbye-pepe)**
+
+**1 August 2017**
+Another critic of the crackdown is Dr. Ugo Rossi, a geographer at the University of Turin and author of the book Cities in Global Capitalism. He points out that the law is a response to fundamental changes to the underlying character of Italian city centers. “It’s a structural problem” Rossi says, “one that is particularly evident in Rome and other tourist-dominated cities.” Thanks to the deregulation of the housing market and the rise of home-sharing services like Airbnb, the hearts of many historic Italian towns have become increasingly oriented towards tourist accommodation and businesses, “emptying” them of local residents. “What increasingly replaces them are tourists—or in cities such as Bologna, students—who are not respectful of public space,” says Rossi. “As a result city centers are now just places of consumption rather than residency—ones that are no longer used by local people.”
+Not all cities suffer equally from residential displacement, however. “The city centers that have survived this kind of transformation are those in southern Italy’s major cities, such as Naples, Palermo, Bari” says Rossi, “where despite some touristification many people are still living in the city core. So reflexes like [the Daspo Urbano] are on the one hand related to anxieties about security, and on the other about fears of a loss of authenticity, or local people who are more protective of their environment.”  
+**Fergus O’Sullivan - Why is Italy banning everything – [CityLab](https://www.bloomberg.com/news/articles/2017-07-31/italy-cracks-down-on-tourist-behavior-in-central-cities)**
+
+**27 July 2017**  
+Baker had opportunities in France that a black woman did not have in segregated US society and she did not have to deal with the daily outrage of a color line. At the same time the French and European obsession with Baker’s ‘primitivism’, which she played into with her famous banana dance, spoke to a racism magnetized by the erotic possibilities of blacks. In the twilight of European colonialism she symbolized the elusive native, the one who sang, danced, and tantalized but remained independent. Emerging half-naked on stage from a giant cage, Baker capitalized on barely-repressed European racial fantasies and turned them into a personal fortune. As she said, “Leers and dirty looks are two sides of the same coin.”
+
+The African American world paid close attention to Baker and the Revue Négre as they conquered Paris. W.E.B Du Bois took note of her in The Crisis and the African American press chronicled her successes. Middle-class white Americans, few of whom had ever seen Baker perform during her US career, knew of Baker but paid her little more than brief attention. It was in Europe where Baker had the most profound impact as the American image of the Jazz Age. Two Americans especially mattered to Europeans in the 1920s: Woodrow Wilson and Josephine Baker.  
+**Joe Lockard - Joseophine Baker superstar - (Souciant](http://souciant.com/2017/07/josephine-baker-superstar/)**
+
+**26 July 2017**  
+The [Department of Energy] has a program, for example, to provide low-interest loans to companies to encourage risky corporate innovation in alternative energy and energy efficiency. The loan program became infamous when one of its borrowers, the solar-energy company Solyndra, was unable to repay its loan, but, as a whole, since its inception in 2009, the program has turned a profit. And it has been demonstrably effective: it lent money to Tesla to build its factory in Fremont, California, when the private sector would not, for instance. Every Tesla you see on the road came from a facility financed by the D.O.E. Its loans to early-stage solar-energy companies launched the industry. There are now 35 viable utility-scale, privately funded solar companies—up from zero a decade ago. And yet today the program sits frozen. “There’s no direction what to do with the applications,” says the young career civil servant. “Are we shutting the program down?” They’d rather not, but if that’s what they are going to do, they should do it. “There’s no staff, just me,” says the civil servant. “People keep bugging me for direction. It’s got to the point I don’t care if you tell me to tear the program down. Just tell me what you want to do so I can do it intelligently.” Another permanent employee, in another wing of the D.O.E., says, “The biggest change is the grinding to a halt of any proactive work. There’s very little work happening. There’s a lot of confusion about what our mission was going to be. For a majority of the workforce it’s been demoralizing.”  
+**Michael Lewis - Why the scariest nuclear threat may be coming from inside the White House - [Vanity Fair](https://www.vanityfair.com/news/2017/07/department-of-energy-risks-michael-lewis)**
+
