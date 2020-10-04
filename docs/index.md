@@ -202,4 +202,61 @@ But caution about the potential of our cities and suburbs as wildlife habitat is
 **3 December 2017**  
 ![Near Euston](https://oiuy88.files.wordpress.com/2017/12/2017-12-03-142011-00001.gif?w=620&h=349 "Near Euston")
 
+**30 November 2017**  
+Small grains are “cool season” crops that are planted in the spring and provide coverage for the soil in the wet months, reducing erosion and soaking up excess nutrients that might otherwise end up in waterways. And since they’re harvested in July, farmers can then plant warm-season cover crops in the summer that develop robust root systems. This helps the soil function as a vital living ecosystem that retains more water, stores more carbon, and requires less fertilizer to grow food.  
+**Twilight Greenaway - Where corn is king, the stirrings of a renaissance in small grains - [Yale Environment 360](http://e360.yale.edu/features/where-corn-is-king-the-stirrings-of-a-small-grain-renaissance)**
+
+**29 November 2017**  
+![At work](https://oiuy88.files.wordpress.com/2017/10/2017-10-26-171630-0000.gif?w=620&h=496 "At work")
+
+**28 November 2017**  
+Communication
+
+“It’s a matter of how we engage on the social front there.”
+
+“It is a complex theme. We just need to be tapping into the objective of profile raising and how we can knit these objectives together over the next reporting season.”
+
+“… so that we’re being much more aware of the brand when it comes to providing teams with our learnings.”
+
+“We’ll get some great learnings in terms of the kinds of traction it gets, we just need to be on the front foot.”
+
+“At the level that’s feasible for the team. Let’s go with what there is. Though there’s a little bit of work all three of us have been doing in terms of aligning and messaging with what’s already been put out.”
+
+“If we see some traction there…”
+
+“It’s a meeting I’m keen to push back on, and obviously we just need to be looping in with her.”
+
+“Pushing the envelope of doing things differently. It’s an opportunity to be seized rather than waiting for it to happen.”
+
+“The more we can join up, the more we can detail our own messaging.”
+
+“How do we want to wrap it up, what’s our umbrella? Is it that the individual tactical elements just become pegged on the branding aspects of that journey?”
+
+“There’s also the need to confirm what the story is with the project – we don’t want it slipping into Christmas.”
+
+“Let’s control the enthusiasm of everyone writing and putting everything into the bucket.”
+
+“The next time we’re operating outside the norm, best practice does stay.”
+
+**25 November 2018**  
+But in Fleet Road, Alexandra Road, etc I began to reject the notion of modernism as wiping out the past; I embraced a modernism which took on board the notion of a continuing culture and history.
+
+(…) First you have to set up a basic national building authority, then draw up a national document on house building, working on the Parker Morris standards of the 1960s. Morris created “Homes for Today and Tomorrow”, which was an absolutely remarkable adventure into housing. It meant housing could be flexible, with a range of designs; it encouraged experiment. We need a new version of this. These building standards would be used by local authorities, who would build the houses.
+
+**Interview with Neave Brown - We asked a pioneering architect how to solve the housing crisis - [VICE](https://www.vice.com/amp/en_uk/article/3kvm48/we-asked-a-pioneer-architect-how-to-solve-the-housing-crisis)**
+
+**5 November 2017**  
+The very sobriety of Georgian architecture, meanwhile, is what has made it so commercially expedient. Flat walls of yellow brick and simple grids of windows mean it can fill any plot of land and allow for endless repetition, while the general flimsiness can be hidden behind signifiers of permanence and solidity. Its easy negotiation of building codes and its suitability to historically sensitive areas has made it indispensable to developers, too, so it’s easy to see why this often shoddily built pastiche rubbish has become so endemic.  
+**Interview with Pablo Bronstein -  Land of tassels, swags and sash windows: a swipe at Britain's pseudo-Georgian wonderland - [The Guardian](https://www.theguardian.com/artanddesign/2017/sep/24/pablo-bronstein-britain-pseudo-georgian-architecture-riba)**
+
+**2 November 2017**  
+In Tucson, Arizona, for example, house finches have developed longer and wider beaks than their rural counterparts to more easily consume sunflower seeds in bird feeders. In Puerto Rican cities, lizards’ toes have evolved to grip and move more easily on artificial surfaces, like concrete or brick. Several studies have also shown that urban pollution can increase mutation rates of DNA in birds and mammals. A new species of mosquito appears to be emerging that survives underground in sewers and subways.  
+**Urban-based evolution: Species are rapidly adapting to city habitats - [Yale Environment 360](https://e360.yale.edu/digest/urban-based-evolution-species-are-rapidly-adapting-to-city-habitats)**
+
+**26 October 2017**  
+![Nervous jumper](https://oiuy88.files.wordpress.com/2017/10/2017-10-24-120444-0000.gif?w=620&h=496 "Nervous jumper")
+
+**15 October 2017**  
+A cynical view of Crowdtap is that it’s just another form of social media marketing — people being paid to tell their friends to buy things. But then you realize that these people don’t have large social media followings (in fact, Crowdtap users I interviewed said they create throwaway social media accounts to use exclusively for Crowdtap). And sharing content on social media isn’t even required — the default option is to share, but you get your points either way. Crowdtap passes members’ responses on to brands, but otherwise nobody is listening to what they say. No one is responding. There’s very little about this that might be called social. Imagine someone wandering alone in a giant desert, shouting “I love Big Macs!” into the sky. That’s Crowdtap.  
+**Daniel Carter - The only job a robot couldn’t do – [The Outline](https://theoutline.com/post/2393/the-only-job-a-robot-couldn-t-do)**
 
