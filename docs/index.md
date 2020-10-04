@@ -200,5 +200,6 @@ But caution about the potential of our cities and suburbs as wildlife habitat is
 **Richard Conniff - Habitat on the Edges: Making room for wildlife in an urbanized world - [Yale Environment 360](https://e360.yale.edu/features/habitat-on-the-edges-making-room-for-wildlife-in-an-urbanized-world)**
 
 **3 December 2017**  
-![Near Euston](https://oiuy88.files.wordpress.com/2017/12/2017-12-03-142011-00001.gif?w=720&h=405 "Near Euston")
+![Near Euston](https://oiuy88.files.wordpress.com/2017/12/2017-12-03-142011-00001.gif?w=600&h=338 "Near Euston")
+
 
