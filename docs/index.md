@@ -440,3 +440,140 @@ Consider a student who always starts her homework the moment it’s assigned.  W
 More generally, self-discipline can be less a sign of health than of vulnerability.  It may reflect a fear of being overwhelmed by external forces, or by one’s own desires, that must be suppressed through continual effort.  In effect, such individuals suffer from a fear of being out of control.  In his classic work Neurotic Styles, David Shapiro described how someone might function as “his own overseer, issuing commands, directives, reminders, warnings, and admonitions concerning not only what is to be done and what is not to be done, but also what is to be wanted, felt, and even thought.”  Secure, healthy people can be playful, flexible, open to new experiences and self-discovery, deriving satisfaction from the process rather than always focused on the product.  An extremely self-disciplined student, by contrast, may see reading or problem-solving purely as a means to the end of a good test score or a high grade.  In Shapiro’s more general formulation, such people “do not feel comfortable with any activity that lacks an aim or a purpose beyond its own pleasure, and usually they do not recognize the possibility of finding life satisfying without a continuous sense of purpose and effort.”  
 **Alfie Kohn - Why Self-Discipline is Overrated - [Alphie Kohn](https://www.alfiekohn.org/article/self-discipline-overrated/)**
 
+**16 March 2017**  
+Upon a heap of rubbish in the road-side ditch blooms a lotus, fragrant and pleasing.  
+**[The Dhammapada](http://www.buddhanet.net/pdf_file/scrndhamma.pdf)**
+
+**15 March 2017**  
+In dem Dorf in der deindustrialisierten Picardie, über das ich meinen ersten Roman Das Ende von Eddy geschrieben habe, herrschten Arbeitslosigkeit, Elend, Alkohol, Gewalt, eine brutale Männlichkeit. In diesem Milieu, aus dem auch Bourdieu stammt, ist Politik eine Frage von Leben und Tod. Man spürt sie am lebendigen Leibe: in der medizinischen Versorgung, beim Essen, im sexuellen Alltag. Die politischen Fragen heißen: Gehe ich zum Arzt, wenn ich krank bin? Gibt es heute Abend etwas zu essen? Kann ich sexueller Gewalt entkommen? Mein Vater ist zum ersten Mal in seinem Leben zum Zahnarzt gegangen, als ich 14 Jahre alt war, weil der Staat eine Beihilfe geschaffen hatte. Es gab Tage in meiner Kindheit, da hat meine Mutter gesagt: “Heute gibt es zum Essen nur Milch.” Ich gehe wählen, damit die körperliche Not und Gewalt aufhört. Das Wahlrecht ist für mich dabei ein politisches Instrument unter vielen.  
+**Interview with Edouard Louis - [Die Zeit](http://www.zeit.de/2017/09/edouard-louis-frankreich-linke-front-national-marine-le-pen)**
+
+**17 January 2017**  
+Une langue unique, cela n’existe pas, à moins de robotiser les humains ! On a toujours créé de la diversité. Et puis, cette idée qu’une société ne peut fonctionner que si on s’exprime tous exactement de la même façon est fausse. A l’école, on parle de l’importance de la «maîtrise de la langue». Ce mot «maîtrise» est chargé de sens. Comme s’il était question de la dompter, de la domestiquer à la manière d’un animal sauvage. Nous avons un rapport très particulier à la langue, de l’ordre du totem, d’un symbole absolu de l’identité nationale. C’est presque une religion. Je pèse mes mots. Un exemple. Lors du débat parlementaire sur la déchéance de la nationalité, il y a quelques semaines, une députée a tweeté : «Respecter la France, c’est d’abord respecter sa langue…» L’attachement à la langue est de l’ordre du sacré, ancré dans la tête des gens dès l’école. Ce qui explique d’ailleurs que la plupart l’acceptent, jouent le jeu, renoncent à leur langue régionale ou immigrée, à leur accent régional ou social, changent leur manière de parler, les mots qu’ils emploient en se disant ne pas avoir le choix. L’idéologie est tellement prégnante qu’on transpose cette pression sur les langues étrangères. On va par exemple collectivement considérer que bien parler l’anglais, c’est s’exprimer avec l’accent de la bourgeoisie londonienne. Comme si c’était le seul accent valable ! Alors que vous pouvez parler l’anglais à votre façon, les anglophones ne donneront pas d’importance à votre accent.  
+**Philippe Blanchet - Rejeter un accent, c’est toucher à l’identité de l’être - [Libération](https://www.liberation.fr/debats/2016/04/24/philippe-blanchet-rejeter-un-accent-c-est-toucher-a-l-identite-de-l-etre_1448309)**
+
+**29 December 2016**  
+One of the sneakier pitfalls of an efficiency-based attitude to time is that we start to feel pressured to use our leisure time “productively”, too – an attitude which implies that enjoying leisure for its own sake, which you might have assumed was the whole point of leisure, is somehow not quite enough. And so we find ourselves, for example, travelling to unfamiliar places not for the sheer experience of travel, but in order to add to our mental storehouse of experiences, or to our Instagram feeds. We go walking or running to improve our health, not for the pleasure of movement; we approach the tasks of parenthood with a fixation on the successful future adults we hope to create.
+
+In his 1962 book The Decline of Pleasure, the critic Walter Kerr noticed this shift in our experience of time: “We are all of us compelled to read for profit, party for contracts, lunch for contacts … and stay home for the weekend to rebuild the house.” Even rest and recreation, in a culture preoccupied with efficiency, can only be understood as valuable insofar as they are useful for some other purpose – usually, recuperation, so as to enable more work. (Several conference guests mentioned Arianna Huffington’s current crusade to encourage people to get more sleep; for her, it seems, the main point of rest is to excel at the office.)
+
+**Oliver Burkeman - Why time management is ruining our lives - [The Guardian](https://www.theguardian.com/technology/2016/dec/22/why-time-management-is-ruining-our-lives)**
+
+**9 December 2016**  
+Le Time vient de mettre en ligne un mini-site sur les 100 photographies qui ont le plus influencé le monde, accompagnées de leur histoire.
+
+La sélection est très pertinente, les images sont fantastiques et variées, il n’y a rien à ajouter.
+
+J’ai donc décidé de vous présenter ici 100 photographies qui n’ont eu absolument aucune influence sur rien, leur seul mérite est d’exister, merci à elles.  
+**100 photos qui n’ont eu aucune influence sur le monde - [La boite verte](https://www.laboiteverte.fr/100-photos-nont-aucune-influence/)**
+
+**2 December 2016**  
+The standard view is that the switch to an energy system based on renewables will take at least half a century.
+
+This opinion is largely derived from Professor Vaclav Smil's work on previous transitions from one fuel to another. We have all gone on to assume that the future will be like the past.
+
+In contrast, I argue that the growth of solar PV, in particular, will not be restrained by the forces that held back new fuels in the past. Of course, nobody actually knows how rapid the growth of renewables will be but my purpose in this note is to suggest that Smil's view may be incomplete and that solar and wind will continue to grow at far faster rates than he suggests are possible.  
+**Chris Goodall - The time needed for Energy Transitions - [Carbon Commentary](https://www.carboncommentary.com/blog/2016/11/17/the-time-needed-for-energy-transitions)**
+
+**21 November 2016**  
+One thing is that mother trees suckle their children, they feed the young tree just enough sugars produced by its own photosynthesis to keep it from dying. Trees in a forest of the same species are connected by the roots, which grow together like a network. Their root tips have highly sensitive brain-like structures that can distinguish whether the root that it encounters in the soil is its own root, the root of another species, or the roots of its own species. If it encounters its own kind, I don’t know if scientists yet know how this happens, but we have measured with radioactive-marked sugar molecules that there is a flow from healthy trees to sick trees so that they will have an equal measure of food and energy available. […] We have this essentially arbitrary caste system for living beings. We say plants are the lowest caste, the pariahs because they don’t have brains, they don’t move, they don’t have big brown eyes. Flies and insects have eyes, so they are a bit higher, but not so high as monkeys and apes and so on. I want to remove trees from this caste system. This hierarchical ranking of living beings is totally unscientific. Plants process information just as animals do, but for the most part they do this much more slowly. Is life in the slow lane worth less than life on the fast track?  
+**Interview with Peter Wohlleben - [Yale Environment 360](https://e360.yale.edu/features/are_trees_sentient_peter_wohlleben)**
+
+**9 November 2016**  
+A common myth, promoted by the rich, is that wealth is produced individually before it is collectivized by the state, through taxation. In fact, wealth was always produced collectively and privatized by those with the power to do it: the propertied class. Farmland and seeds, pre-modern forms of capital, were collectively developed through generations of peasant endeavor that landlords appropriated by stealth. Today, every smartphone comprises components developed by some government grant, or through the commons of pooled ideas, for which no dividends have ever been paid to society.
+
+so how should society be compensated? Taxation is the wrong answer. Corporations pay taxes in exchange for services the state provides them, not for capital injections that must yield dividends. There is thus a strong case that the commons have a right to a share of the capital stock, and associated dividends, reflecting society’s investment in corporations’ capital. And, because it is impossible to calculate the size of state and social capital crystalized in any firm, we can decide how much of its capital stock the public should own only by means of a political mechanism.  
+**Yanis Varoufakis - The universal right to capital income - [Project Syndicate](https://www.project-syndicate.org/commentary/basic-income-funded-by-capital-income-by-yanis-varoufakis-2016-10)**
+
+**1 November 2016**  
+They say plastic lingers in the natural environment for years, and they’re not kidding. Here was a packet of crisps from my childhood, indeed one I might have saved up tokens for myself before sticking them (along with a 65p postal order) into an envelope. The world has spun thousands of times since 1974, and yet here was a wrapper still mostly intact, its special offer still legible, washed up on the shore as if only recently thrown away.  
+**Diamond Geezer - Visit to Cliffe Fort - [Diamond Geezer](https://diamondgeezer.blogspot.com/2016/10/cliffe-fort.html)**
+
+**25 October 2016**  
+The numbers can be confusing but the thrust was clear. The big idea, in design terms, was to return to a more traditional streetscape and more suburban style of architecture. The stated aim of the Peckham Partnership was to ‘provide family houses and a neighbourhood environment which encourages study, work, leisure and healthy living’. The architect Will Alsop praised the new build’s ‘more traditional type of architecture with pitched roofs’ and a circulation around its buildings which felt ‘much safer and…more embracing’.
+
+To Pollard Thomas & Edwards, the previous renovations, which involved the removal of walkways and partial demolitions but had left the basic layout of North Peckham intact, had been inadequate: the ‘homes themselves were fine, it was the bits in between that were disastrous’. The new scheme, they claimed, would create a legible street pattern and a link between the shops and amenities of Peckham High Street and Burgess Park.
+
+This was ‘back to the future’ with a vengeance, echoing all the tropes of the contemporary ‘defensible space’ movement which emphasised the ‘natural surveillance’ of the streets and the need to increase private space and reduce twilight zones of semi-public space.  
+**The Five Estates, Peckham, Part III: Back to the Future - [Municipal Dreams](https://municipaldreams.wordpress.com/2016/10/25/the-five-estates-peckham-part-iii/)**
+
+**10 September 2016**  
+It just doesn’t seem emotionally realistic  
+Especially considering that  
+They were not the most self-aware of people  
+And to be able to maintain a friendship  
+Through the various complications of heterosexual monogamy  
+Is enormously difficult  
+Especially when you take into consideration  
+What cunts they all were  
+**Hera Lindsay Bird - Monica - [Spinoff](https://thespinoff.co.nz/featured/13-05-2016/the-friday-poem-monica-by-hera-lindsay-bird/)**
+
+**31 August 2016**  
+![Portrait](https://oiuy88.files.wordpress.com/2016/08/screen-shot-2016-08-23-at-20-57-32.png?w=620&h=357 "Portrait")
+
+**5 August 2016**  
+WH: Tell me about Pokémon Go. What is happening on Pokémon Go?  
+TV: It’s basically the first mainstream augmented reality program. It’s a game where the entire world is mapped and you walk around with the GPS on your phone. You walk around in the real world and can catch these little monsters and collect them. And everybody is playing it.  
+WH: Does it tell you you’re here at San Vicente, close to Sunset Boulevard?  
+TV: Yeah, it’s basically like a Google map.  
+WH: But what does pokémon do at this corner here?  
+TV: You might be able to catch some. It’s all completely virtual. It’s very simple, but it’s also an overlay of physically based information that now exists on top of the real world.  
+WH: When two persons in search of a pokémon clash at the corner of Sunset and San Vicente is there violence? Is there murder?  
+TV: They do fight, virtually.  
+WH: Physically, do they fight?  
+TV: No—  
+WH: Do they bite each other’s hands? Do they punch each other?  
+**Interview with Werner Herzog - [The Verge](https://www.theverge.com/2016/7/28/12312538/werner-herzog-interview-masterclass-lo-and-behold)**
+
+**1 August 2016**  
+This 11-mile stretch is one of the only places that defied the Army Corps’ Depression-era efforts at control. The bottom of the river was so soft that the concrete would not stick. As a result, this section of river is a purling, cobble- and rock-studded waterway with swimming mallards, blue herons, and cormorants atop boulders drying their outstretched wings. Both banks, though, form a massive concrete trough.
+
+Still, nature finds a way. It turns out that water sheeting over the concrete grows algae that are an important foraging habitat for shorebirds. Indeed, on the day I visited, a black-necked stilt was working these hard bottom shallows.
+
+(…) Historical ecology — the study of old photos, maps, and diary accounts — will provide a sense of what the river once looked like, including the wildlife and plant species present. This will help guide restoration. “It gives you a sense of options for the future,” Parker says.  
+**Jim Robbins - How to restore an urban river? Los Angeles looks to find out - [Yale Environment 360](https://e360.yale.edu/features/restoring_the_los_angeles_river)**
+
+**31 July 2016**  
+Blogging’s a lot of effort for scant reward, so if hardly anybody’s reading what you write, why bother? Alternative platforms have taken hold, and take far less effort to update, and get instant feedback. Self-broadcasting is no clique any more, it’s a universal collective, which leaves those of us who still create long-form prose down something of a cul-de-sac. Indeed images have already overtaken text for most, as people spend their days looking at photos of their mates, watching videos of comical kittens, capturing their food on Instagram, making conversation by appending snapshots from TV shows, and responding via emoji. Why bother writing anything, quite frankly, when nobody has time for anything more than swiftly digestible visual nuggets?
+
+(…) Most importantly, new readers no longer come clicking via a long-standing blogroll in a sidebar. Instead they arrive via a one-off reference on social media, if they turn up at all, because Twitter and Facebook are very much in charge these days. A blog is now only as good as its last post, and long-term reputation counts for almost nothing. I’m very much aware that my daily readership is now almost exclusively people who arrived here once and stayed, and all too rarely fresh blood directed in from elsewhere.  
+**Blog roll - [Diamond Geezer](https://diamondgeezer.blogspot.com/2016/07/blogroll-2016.html)**
+
+**31 July 2016**  
+The service of Loophole for All acquires the lists of companies incorporated in the offshore centers and armed with as little as a company name and a number, lets people hijack those companies and utilize them for public advantage.
+
+This corporate identity theft benefits from the anonymous nature of those offshore companies. Everyone can pretend to be them because of their real owners’ secrecy. And even if it’s illegal to steal an identity of a company, the courts of offshoring centers don’t have any power or credibility onshore. And meanwhile, onshore authorities don’t have the resources to verify the real owners of companies offshore — even less to chase everybody down.  
+**About the Loophole for All project - [Loophole for All](https://loophole4all.com/about.php)**
+
+**28 July 2016**  
+![First thought after Brexit](https://oiuy88.files.wordpress.com/2016/07/screen-shot-2016-07-08-at-16-47-25.png?w=620 "First thought after Brexit")
+
+**4 July 2016**  
+Society is built on interfaces. You take a complex thing, put it inside a sturdy box, and put some simple buttons on the box so that people can use the thing inside. The box makes it easier to use and prevents people from breaking it. For example, you can take the machinery of a clock, put it in a box, and put two hands on the outside along with a knob for winding it. Take all the machinery of a car, hide it behind a dashboard, and give people two pedals and wheel. Take all the circuits of a computer, put them in a box, and give people a monitor and a keyboard.
+
+Interfaces receive input and produce output, and that’s all we need to know. The clock gets wound, and its hands show the time. Input and output. As far as the user needs to know, what happens inside the box is magic. This allows stupid and ignorant people to use complicated things, as long as the interface inputs and outputs are simple.
+
+Toyota uses millions of kilograms of steel every year. Does the CEO of Toyota know how to make steel from scratch? If he wanted to beat a guy up, could he go digging in the ground for some ore and whip himself up a batch of steel to make a pipe? No. He uses interfaces to get steel. He buys steel from an steelmaking company. Except he doesn’t personally go down to the steelmaking company with a bag full of Yen, saying, “How much for a million kilos?” He uses a bank. Except he doesn’t even personally go to the bank. He has a subordinate who does it for him. All these people and institutions are interfaces he can use. He employs a system of layered interfaces, both metaphorical and literal, to control things he doesn’t really understand. We all do. The point is this: don’t go messing with the CEO of Toyota. I assure you, he could get his hands on a steel pipe if he wanted.  
+**The interface series - [Reddit](https://www.reddit.com/r/9M9H9E9/wiki/narrative)**
+
+**3 July 2016**  
+![English as she is spoke](https://oiuy88.files.wordpress.com/2016/07/screen-shot-2016-07-03-at-11-00-33.png?w=620 "English as she is spoke")
+
+**21 April 2016**  
+Once thought to be the most densely populated place on Earth, with 50,000 people crammed into only a few blocks, these fascinating pictures give a rare insight into the lives of those who lived Kowloon Walled City.
+
+Taken by Canadian photographer Greg Girard in collaboration with Ian Lamboth the pair spent five years familiarising themselves with the notorious Chinese city before it was demolished in 1992.
+
+The city was a phenomenon with 33,000 families and businesses living in more than 300 interconnected high-rise buildings, all constructed without contributions from a single architect.  
+**Pamela Owen - Inside the Kowloon Walled City where 50,000 residents eked out a grimy living in the most densely populated place on earth - [MailOnline](https://www.dailymail.co.uk/news/article-2139914/A-rare-insight-Kowloon-Walled-City.html)**
+
+**12 April 2016**  
+For another thing, “Game of Thrones” had dragons, and I place a total embargo on dragons. I would almost rather have zombies. Bolstered by these and other relevant prejudices, I managed to ward off “Game of Thrones” for months. Then a box of the first season somehow got into the house. It lay there unopened on the parlor table while I thought of further objections. For yet another thing, “Game of Thrones” had Sean Bean as a hero, when everybody knows that Sean Bean is meant to be a heavy, one who flexes his teeth and grits his jaw before being eliminated by Christian Bale in “Equilibrium” or Harrison Ford in “Patriot Games.”  
+**Clive James - Thrones of blood - [New Yorker](https://www.newyorker.com/magazine/2016/04/18/the-raw-appeal-of-game-of-thrones)**
+
+**31 March 2016**  
+How do we know when a photographer caters to life and not to some previous prejudice? One clue is when the picture evades compositional cliché. But there is also the question of what the photograph is for, what role it plays within the economic circulation of images. Some photographs, like Singh’s, are freer of the censorship of the market. Others are taken only to elicit particular conventional responses — images that masquerade as art but fully inhabit the vocabulary of advertising. As Justice Potter Stewart said when pressed to define hard-core pornography in 1964, “I know it when I see it.”  
+**Teju Cole on Raghubir Singh - A too-perfect picture - [New York Times Magazine](https://www.nytimes.com/2016/04/03/magazine/a-too-perfect-picture.html)**
+
+![Deptford](
+https://oiuy88.files.wordpress.com/2016/03/screen-shot-2016-03-13-at-12-05-14.png?w=620 "Deptford")
