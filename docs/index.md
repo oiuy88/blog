@@ -575,5 +575,145 @@ For another thing, “Game of Thrones” had dragons, and I place a total embarg
 How do we know when a photographer caters to life and not to some previous prejudice? One clue is when the picture evades compositional cliché. But there is also the question of what the photograph is for, what role it plays within the economic circulation of images. Some photographs, like Singh’s, are freer of the censorship of the market. Others are taken only to elicit particular conventional responses — images that masquerade as art but fully inhabit the vocabulary of advertising. As Justice Potter Stewart said when pressed to define hard-core pornography in 1964, “I know it when I see it.”  
 **Teju Cole on Raghubir Singh - A too-perfect picture - [New York Times Magazine](https://www.nytimes.com/2016/04/03/magazine/a-too-perfect-picture.html)**
 
+**24 March 2016**  
 ![Deptford](
 https://oiuy88.files.wordpress.com/2016/03/screen-shot-2016-03-13-at-12-05-14.png?w=620 "Deptford")
+
+**13 March 2016**  
+For black Gen-Xers like myself, who witnessed past scenes of black torture caught on camera, like the beating of motorist Rodney King by LAPD officers back in 1991, this is a moment in which the truth of black death and incarceration feels both familiar and utterly new. We are more than accustomed to managing our fury and incredulity about the insult of racial violence and its casual, chronic erasure from the public conversation. What is harder to process is seeing the faces and hearing the stories of the dead in great detail from surviving family members grappling with unspeakable pain. We who watch these daily tragedies unfold on our phones and laptops and cable news watch from afar but feel the sad heaviness of what it means to experience one’s blackness as precarious and unprotected, as eviscerated of its citizenship. To live like that is to walk through the world always slightly numb and sceptical of what lies ahead.  
+**Daphne A Brooks - How #BlackLivesMatter started a musical revolution - [The Guardian](https://www.theguardian.com/us-news/2016/mar/13/black-lives-matter-beyonce-kendrick-lamar-protest)**
+
+**10 March 2016**  
+![A shop in Indonesia](https://oiuy88.files.wordpress.com/2016/03/screen-shot-2016-03-08-at-11-35-26.png?w=620 "A shop in Indonesia")
+
+**8 March 2016**  
+14. Depuis quand? s’écria le troisième. Est-ce que je sais moi! Le fait est que je pratique la chose. Vous allez voir!
+
+a. si vous voulez vous aussi voir, passez à 15
+
+b. si non, passez également à 15, car vous ne verrez rien.  
+**Raymond Queneau - Un conte à votre façon - [Infolipo](https://www.infolipo.org/ambroise/cours/immediat/images/queneau_cavf.pdf)**
+
+**8 March 2016**  
+As a child, Mabey hadn’t studied botany, having little feeling for plants in a conventional scientific sense. “But the idea of an entanglement between human culture and the natural world like that struck some chord in me. I thought it was a terrific story and I was quite sure there would be more examples round Britain. So I invented this book.
+
+(…) “I believe in microcosmic views,” he says. “They seem to me not just powerful metaphors, but actually the nano-bricks for rebuilding things. This is where it starts. There is such a multitude of things going on round here at a local level. I’m kept an optimist by that.”  
+**Interview with Richard Mabey - [The Guardian](https://www.theguardian.com/books/2005/dec/10/featuresreviews.guardianreview11)**
+
+**7 March 2016**  
+What becomes absolutely critical I think in rethinking Malthus is what he says about this. This process of removing people off land in order to make space for British Europeans is something that troubled him deeply. So he says at various points in a couple of chapters, especially the chapters where he’s talking about North America but not only, that the original inhabitants should not be driven into a corner he says, where they will starve. That this is an exercise, that this is an outcome that cannot be considered for an instant. So Malthus in 1803 was deeply troubled by the process by which land would and people, would be cleared in order to make space for the cultivation of grain. And this is something that he thinks about most directly with respect to North America. Not something that he yet thinks about with respect to the colony of New South Wales because it was not yet in 1803 really, there was no pastoral expansion as yet. It’s quite interesting that Malthus doesn’t imagine the continent of Australia as yet available for pastoral expansion. He understands it for what it was at that point, which was a very local coastal settlement.
+
+So this whole question of what happens to original occupants of various New World lands is something that he’s concerned about with respect to the American instance in particular. And it’s that he has, not that many but three or four times in the early, in these early chapters of the Essay, he’s quite clear that driving natives into a corner which is the way he puts it, is an extremely problematic undertaking and something that he says we should not consider for an instant. And that Malthus has often over the years been understood, often in a very knee jerk way as essentially a conservative, this is not what we expect, the received Malthus to have said.  
+**Alison Bashford - Malthus and the New World - [ABC Australia](https://www.abc.net.au/radionational/programs/archived/hindsight/malthus-and-the-new-world/3603638#transcript)**
+
+**4 March 2016**  
+The rise of the New Brutalism was an expression of this discrepancy in sensibilities, and the new appetite for coarse textures and raw materials—as opposed to the sleek machine finishes sought during the 1920s—was a tentative first step toward bringing architecture into harmony with the other arts. The critic Reyner Banham made this point in an important 1955 article in the Architectural Review published in December 1955: “In the last resort what characterizes the New Brutalism in architecture as in painting is precisely its brutality, its je-m’en-foutisme, its bloody-mindedness.” 
+
+(…) For more than a generation now, architecture has aspired to a state of absolute sleekness, in which materials have no weight and surfaces no texture. The practice of designing by computer—not only preparing drawings but conceiving them on the computer screen, and gauging their visual qualities there—has accelerated the process to the point where most buildings give the impression of having been put together through a cold, analytical process, without any feeling for the physicality of materials.  
+**Michael J. Lewis - The “new” New Brutalism - [New Criterion](https://newcriterion.com/issues/2014/12/the-new-new-brutalism)**
+
+**28 February 2016**  
+In those days the mark of the beast was clearly imprinted on the ravished terrain between the A13 and the river: discontinued industries, generic towers rising on the malign compost of the deregulated financial markets, crude surveillance systems protecting speculative retail parks. ‘Don’t you know there’s a war on?’ The repeated challenge as security guards questioned me at every imposed barrier. Thatcher was an abiding presence. Like the smell of the Thames: oil and river-rot and yellow mud. Along walls and embankments, the rabid slogans and anti-Thatcher curses were large and scarlet. In certain hideaway pubs, inscribed photographs in polished frames signalled a positive allegiance. Now, from the window of the empty train to Tilbury, there was nothing. No acknowledgment of funeral or legacy. Margaret Thatcher’s traces were visible in every new shed, in every mushroom estate under a pergola of pylons, but she was forgotten.  
+**Iain Sinclair - Thatcher in Gravesend - [LRB](https://www.lrb.co.uk/the-paper/v35/n09/iain-sinclair/diary)**
+
+**27 February 2016**  
+“They are pretty surreal environments,” he continued. “The absence of people helps you understand the scale of the places, even if they’re not fully built out. You can see the markings of the roadways or the block structures sort of stretching out into the distance, and you recognize how big these things were intended to be, and that sort of scale makes it more obvious how irrational they were in their undertaking.”  
+**Kate Abbey-Lambertz - There’s a lesson in Spain’s surreal, unfinished cities - [Huff Post](https://www.huffpost.com/entry/spain-empty-cities_n_56ba6221e4b0b40245c47dff)**
+
+**27 February 2016**  
+2.30pm I plough through customer scenarios, trying to think of one we’ve forgotten. All I can really think of is that I sent my daughter to school with her swimming costume on under her uniform and it’s not swimming day.  
+**Secret office diaries - [The Guardian](https://www.theguardian.com/lifeandstyle/2016/feb/26/secret-office-diaries)**
+
+**27 February**  
+Almost everyone I know is busy. They feel anxious and guilty when they aren’t either working or doing something to promote their work. They schedule in time with friends the way students with 4.0 G.P.A.’s  make sure to sign up for community service because it looks good on their college applications. I recently wrote a friend to ask if he wanted to do something this week, and he answered that he didn’t have a lot of time but if something was going on to let him know and maybe he could ditch work for a few hours. I wanted to clarify that my question had not been a preliminary heads-up to some future invitation; this was the invitation. But his busyness was like some vast churning noise through which he was shouting out at me, and I gave up trying to shout back over it.  
+**Tim Kreider – The Busy Trap - [The New York Times](https://opinionator.blogs.nytimes.com/2012/06/30/the-busy-trap/)**
+
+**25 February 2016**  
+Identified as a submerged microcontinent by a team of scientists in 1999, the Kerguelen Plateau was built up by eruptions from the hotspot over the next 20 million years before emerging above sea level. A rather quick event in geologic time, the sudden eruption of the plateau may have contributed to a global catastrophe at that time in the form of a global oceanic anoxic event, in which the earth’s oceans are deprived of oxygen and marine life dies off en masse; interestingly, much of the world’s petroleum resources credit their origins to the massive marine extinctions of this time period.
+    
+The plateau existed above water as a microcontinent three different times over a period of 80 million years before it went underwater for a final time about 20 million years ago; a combination of a change in characteristics in the mantle plume which fed Kerguelen’s construction, sea level change, and the inevitable process of erosion (the same reason the northwesternmost Hawaiian Islands are so much smaller than the southeasternmost islands; they’re older). Floor samples indicate that the microcontinent was covered by a coniferous forest.   
+**The Kerguelen Plateau: A sunken microcontinent - [Basement Geographer](https://basementgeographer.com/kerguelen-plateau-a-sunken-microcontinent/) (link broken)**
+
+**22 February 2016**  
+A recent infographic in The Economist revealed that in the 140 million hours humanity spent watching “Gangnam Style” on YouTube two billion times, we could have built at least four more (desperately needed) pyramids at Giza. Endless articles pose the question of why we procrastinate, what’s going wrong in the brain, how to overcome it, and the fascinating irrationality of it all.
+
+But if procrastination is so clearly a society-wide, public condition, why is it always framed as an individual, personal deficiency? Why do we assume our own temperaments and habits are at fault — and feel bad about them — rather than question our culture’s canonization of productivity?
+
+(…) While passive-aggressive personality disorder has been erased from the official portion of the manual, the stigma of slothfulness remains. Many of us, it seems, are still trying to enforce a military-style precision on our intellectual, creative, civilian lives — and often failing.
+
+(…) Oblomov could conduct the few tasks he cared to from under his quilt — writing letters, accepting visitors — but what if he’d had an iPhone and a laptop? Being in bed is now no excuse for dawdling, and no escape from the guilt that accompanies it. The voice — societal or psychological — urging us away from sloth to the pure, virtuous heights of productivity has become a sort of birdlike shriek as more individuals work from home and set their own schedules, and as the devices we use for work become alluring sirens to our own distraction. We are now able to accomplish tasks at nearly every moment, even if we prefer not to.  
+**Anna della Subin - How to Stop Time - [The New York Times](https://www.nytimes.com/2014/09/28/opinion/sunday/how-to-stop-time.html)**
+
+**16 February 2016**  
+Certes, la proximité géographique est très souvent une variable importante. Mais pourquoi devrait-elle être la seule ? Instister sur la co-présence dévalorise toutes les autres formes de proximité. Etre proche géographiquement de quelqu’un (partager une même pièce) ne signifie pas pour autant qu’on prenne activement soin de lui, qu’on l’écoute, qu’on l’apprécie ou qu’on partage des choses avec lui.
+
+Affirmer que la proximité géographique est la seule façon qu’ont les humains pour être proches est une manière d’affirmer une suprématie morale des rapports traditionnels, physiques. Cela induit que le statu quo est la seule solution aux problèmes qu’engendre parfois le numérique.  
+**Hubert Guillaud - L’injonction à la déconnexion est-elle autre chose qu’une critique morale ? - [internetactu](http://www.internetactu.net/2016/02/09/linjonction-a-la-deconnexion-est-elle-autre-chose-quune-critique-morale/)**
+
+**13 February 2016**  
+There are addendums sometimes, add-ons like “I’m happy to see POC characters if the plot calls for it” or “why put in a black dude in the cast just because?” Understand what is being said there: the story that is universal is white. The default is always white. The POC character only makes it in there “when the role calls for it”. Let that sink in for a moment. Our presence in popular culture (and in non-stereotypical roles) must always be justified, but whiteness exists as the basic template. Our place at the table has to be earned. And ain’t that a kick in the teeth?  
+**Bim Adewunmi - What we talk about when we talk about tokenism - [Yoruba Girl Dancing](http://www.yorubagirldancing.com/2012/10/10/what-we-talk-about-when-we-talk-about-tokenism/) (link broken)**
+
+**13 February 2016**  
+The longer I stay here the easier it is to understand why North Americans of my generation, raised on positive reinforcement and dreams of creative fulfillment, are especially drawn to Berlin. This place allows you to escape the harsh realities of adulthood, to avoid confronting the limits of your specialness. In New York, most people I knew were working 12-hour days at bad jobs not only because they needed to make rent, but because they wanted to fit in. Here, you’re free to describe yourself as a “performance artist” or a “graphic designer,” even if you spend your entire day surfing the Internet, because, for the most part, you’re not expected to do anything at all. This aspect of the Berlin lifestyle is sometimes referred to in magazines trend pieces as “downshifting.” A less charitable German would call it “sozialverträgliche Faulheit.”
+
+(…) Not long ago, the graffiti next to my front door began to change. The “fuck off” in “Tourists fuck off” was crossed out, and replaced with “Tourists welcome and bring your parents.” Then the whole thing was covered with a scribble of blue paint, except the word “Tourist.”
+
+Thank goodness, I think, every time I walk past it. My neighbors, it turns out, are just as conflicted as I am.  
+**Thomas Rogers - Welcome to Berlin, now go home - [The Awl](https://www.theawl.com/2012/12/welcome-to-berlin-now-go-home/)**
+
+**7 February 2016**  
+One of the Humboldt squid’s more “attention-grabbing behaviors” is rapidly flashing nearly its entire body from red to white to red again, says Hannah Rosen, a doctoral student at Stanford’s Hopkins Marine Station in Pacific Grove, California. Actual light, like bioluminescence, isn’t involved.
+
+The animals can speed up or slow down their flashes to send different messages. But researchers have no idea what the squid are trying to say—maybe they’re broadcasting come-ons to prospective mates, or throwing down with potential rivals. “That is the question of the hour,” says Rosen, the lead study author.  
+**Jane J. Lee - Watch Jumbo Squid Speak by 'Flashing' Each Other - [National Geographic](https://www.nationalgeographic.com/news/2015/1/150121-humboldt-jumbo-squid-crittercam-animal-ocean-science/)**
+
+**2 February 2016**  
+La première, c’est la solitude. A l’époque de Defoe, la solitude n’existait pas. Le tissu social était extrêmement serré, la pauvreté engendrait la solidarité et on envoyait marginaux et caractériels se faire dresser à l’armée. La solitude, c’est un symptôme moderne, un luxe de pays riches et libres. Aujourd’hui, même les foules sont formées d’un agglomérat de gens seuls qui, par aberration, se gênent physiquement – regardez par exemple, dans les embouteillages, les conducteurs enfermés qui s’insultent les uns les autres…
+
+La deuxième, c’est l’irruption de Vendredi. Robinson est anglais, rouquin, blanc de peau, chrétien, et il voit débouler dans son univers un nègre, nu, animiste, peut-être même anthropophage sur les bords… Il est brutalement confronté à l’Autre, à la différence ; il est partagé sur la conduite à tenir, l’utiliser et le rejeter, l’assimiler et le mépriser… Comment mieux énoncer le problème du tiers-monde, des immigrés, des sans-papiers qui viennent sans cesse frapper à la porte des pays riches ?
+
+La dernière chose que Defoe ne pouvait pas prévoir, c’est la séduction qu’exercent sur l’homme d’aujourd’hui l’île déserte, la plage de sable blond, le retour aux sources, tout ce côté Club Med et rêve stéréotypé propre aux pays qui discutent de réduction du temps de travail et d’aménagement des loisirs.
+    
+(…) Comme je suis un écrivain sans imagination, je n’aborde un sujet qu’après une longue enquête, après avoir amassé une foule de documentation. J’ai écrit tous mes livres de cette manière. Si j’ai un conseil à donner à un jeune romancier, c’est de ne jamais se raconter, de ne jamais se mettre sur le papier. Ma devise : trouver un bon sujet, et se documenter. Pour écrire Les Météores, j’ai visité une usine d’incinération d’ordures ménagères et fait le tour du monde, comme mes héros, d’Helsinki au Japon, de l’île Saint-Louis à Berlin.  
+**Interview with Michel Tournier - [Télérama](https://www.telerama.fr/idees/michel-tournier-philosophe-de-contrebande,137011.php)**
+
+**31 January 2016**  
+Another layer for me that I got really interested in is that we always have this thing about making the other dangerous. So I started reading these books. I read this book on sea monsters. The 16th and 17th century maps, they didn’t understand the ocean, so it was a deep, dark, mysterious place. In these books of these sea monsters, they were half dolphins and half walruses. They had names for them. They had categories. I just became so fascinated by this. I just thought: this is so cool. What they didn’t understand, they made terrifying. Although they needed these routes to exploit, they also started putting in, like, ‘Well, be careful of these waters because they’re full of sea monsters.’ But a lot of it was actually just a marketing strategy by the mapmakers to discourage other explorers from taking those routes.  
+**Interview with Mark Bradford - [The ARTerty](https://www.wbur.org/artery/2014/12/19/mark-bradford-brandeis)**
+
+**28 January**  
+Against that monomaniacal bully, the singular origin of the text, Barthes liked to champion the reader, a delightfully many-headed, depersonalised vessel in which references and texts and ideas could chase each other around and never have to settle. And who is this free and easy reader, so full of contradictions, following possible meanings where they lead “like a run in the stocking”? You suspect it might be Barthes himself, and that as time went on, he started to suspect so, too. After all, authors, if they’re any good, are readers first: that’s why Barthes loved collecting fragments, aphorisms and citations, and making lists of books he’d never need to actually write. The reader-writer doesn’t have to be God, or daddy, or to stay under the thumb of either.    
+**Lidjia Haas - Roland Barthes: Author, I'm sorry - [The Telegraph](https://www.telegraph.co.uk/books/what-to-read/roland-barthes-centenary-death-of-the-author/)**
+
+**27 January 2016**  
+La cuestión es que ese matrimonio entre poder y política en manos del Estado-nación se ha terminado. El poder se ha globalizado pero las políticas son tan locales como antes. La política tiene las manos cortadas. La gente ya no cree en el sistema democrático porque no cumple sus promesas.  
+**Zygmunt Bauman - Las redes sociales son una trampa - [El País](https://elpais.com/cultura/2015/12/30/babelia/1451504427_675885.html)**
+
+**21 January 2016**  
+It’s interesting because her books do seem very readable in Italian. There are occasional weird idiomatic expressions that are Neapolitan words. She talks so much about people’s use of language. She tells us when someone’s speaking in dialect. She talks about how when Lila wants to, she can speak in a beautiful, educated type of Italian. We don’t really get examples of this, but Ferrante says, “She spoke like this,” or every once in awhile Elena will also fall into dialect. There’s this moment where she no longer wants to speak in dialect, it feels strange to her, but then sometimes she can go back into it. The obvious reason Ferrante doesn’t use dialect is because many Italians wouldn’t understand it. But a second reason may be that, as an Italian professor at CUNY was saying, Neapolitan dialect is very much a spoken language, and if she were writing it, there would be no point, in a way. It would lose the character that it has as a spoken language.
+**Interview with Ann Goldstein talks - [Guernica](https://www.guernicamag.com/the-face-of-ferrante/)**
+
+![Paris in 1909](https://oiuy88.files.wordpress.com/2016/01/screen-shot-2016-01-18-at-17-23-21.png?w=620 "Paris in 1909")  
+**Ailsa Ross - These rare color photos of Paris were shot 100 years ago, and they’re amazing - [Matador Network](https://matadornetwork.com/notebook/rare-color-photos-paris-shot-100-years-ago-theyre-amazing/)**
+
+**18 January 2016**  
+Lewis was 27 at the time. He looked around at colleagues at the bank who were 37, the men who might 10 years ago have said the same thing. He saw nothing left in them that suggested they could leave. They had been so transformed by the rates of pay and the needs it had created in them, they couldn’t escape from it.  
+**Interview with Michael Lewis - [The Guardian](https://www.theguardian.com/film/2016/jan/17/michael-lewis-big-short-wall-street-crash-book-film)**
+
+**10 January 2016**  
+![Paris](https://oiuy88.files.wordpress.com/2016/01/screen-shot-2016-01-09-at-11-41-52.png?w=620 "Paris")
+
+**10 January 2016**  
+In writing, habit seems to be a much stronger force than either willpower or inspiration. Consequently there must be some little quality of fierceness until the habit pattern of a certain number of words is established. There is no possibility, in me at least, of saying, “I’ll do it if I feel like it.” One never feels like awaking day after day. In fact, given the smallest excuse, one will not work at all. The rest is nonsense. Perhaps there are people who can work that way, but I cannot. I must get my words down every day whether they are any good or not.  
+**John Steinbeck - [Brainpickings](https://www.brainpickings.org/2016/01/04/resolutions-2016/)**
+
+**7 January 2016**  
+A few years ago, after CBT had started to dominate taxpayer-funded therapy in Britain, a woman I’ll call Rachel, from Oxfordshire, sought therapy on the NHS for depression, following the birth of her first child. She was sent first to sit through a group PowerPoint presentation, promising five steps to “improve your mood”; then she received CBT from a therapist and, in between sessions, via computer.
+
+“I don’t think anything has ever made me feel as lonely and isolated as having a computer program ask me how I felt on a scale of one to five, and – after I’d clicked the sad emoticon on the screen – telling me it was ‘sorry to hear that’ in a prerecorded voice,” Rachel recalled. Completing CBT worksheets under a human therapist’s guidance wasn’t much better.
+
+“With postnatal depression,” she said, “you’ve gone from a situation in which you’ve been working, earning your own money, doing interesting things – and suddenly you’re at home on your own, mostly covered in sick, with no adult to talk to.” What she needed, she sees now, was real connection: that fundamental if hard-to-express sense of being held in the mind of another person, even if only for a short period each week.  
+**Oliver Burkeman - Therapy wars: the revenge of Freud - [The Guardian](https://www.theguardian.com/science/2016/jan/07/therapy-wars-revenge-of-freud-cognitive-behavioural-therapy)**
+
+https://oiuy88.wordpress.com/page/20/
