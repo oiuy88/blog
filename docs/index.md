@@ -379,7 +379,7 @@ Pour Jean-Laurent Cassely, cette véritable «anomalie sociologique» trouve son
 **Monreale Cathedral - [Wikimedia](https://upload.wikimedia.org/wikipedia/commons/0/0a/Sicilia_Monreale4_tango7174.jpg)**
 
 **22 May 2017**  
-Who owns land is one of England’s most closely-guarded secrets. This map is a first attempt to display major landowners in England, combining public data with Freedom of Information requests. To follow the investigation and help us fill in the gaps, visit the Who Owns England? blog.  
+Who owns land is one of England’s most closely-guarded secrets. This map is a first attempt to display major landowners in England, combining public data with Freedom of Information requests.    
 **Guy Shrubsole and Anna Powell-Smith - [Who owns England?](https://map.whoownsengland.org/)**
 
 **22 May 2017**  
@@ -403,7 +403,7 @@ En réalité, les bénéfices sont envisagés pour des habitants qui ont des niv
 **22 April 2017**  
 Catherine, William + Harry: Heads Together  
 Je commençais à connaître l’exacte valeur du langage parlé ou muet de l’amabilité aristocratique, amabilité heureuse de verser un baume sur le sentiment d’infériorité de ceux à l’égard desquels elle s’exerce mais pas pourtant jusqu’au point de la dissiper, car dans ce cas elle n’aurait plus de raison d’être. “Mais vous êtes notre égal, sinon mieux”, semblaient, par toutes leurs actions, dire les Guermantes ; et ils le disaient de la façon la plus gentille que l’on puisse imaginer, pour être aimés, admirés, mais non pour être crus ; qu’on démêlât le caractère fictif de cette amabilité, c’est ce qu’ils appelaient être bien élevés ; croire l’amabilité réelle, c’était la mauvaise éducation.  
-**Proust - Sodome et Gomorrhe (Gallimard) - page 62
+**Proust - Sodome et Gomorrhe (Gallimard) - page 62**
 
 **7 April 2017**  
 The desire to censor the pregnant female body is nothing new, and it goes hand in hand with our inability to discuss things like the menstrual cycle without deferring to the delicate sensibilities of actual or imagined listeners, particularly male ones. Beyoncé’s photographs were accompanied by a poem by Warsan Shire, making the link to Venus— goddess of love— explicit, and reinforcing the sexual aspect of the images: ‘in the dream I am crowning / osun, / Nerfetiti, / and yemoja / pray around my bed’. The photograph that seemed to incense people the most was the one posed sitting on the roof of a car: a hyper-sexualised pose familiar to many from calendars and glamour magazines.
