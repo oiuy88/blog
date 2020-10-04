@@ -311,3 +311,51 @@ The African American world paid close attention to Baker and the Revue Négre as
 The [Department of Energy] has a program, for example, to provide low-interest loans to companies to encourage risky corporate innovation in alternative energy and energy efficiency. The loan program became infamous when one of its borrowers, the solar-energy company Solyndra, was unable to repay its loan, but, as a whole, since its inception in 2009, the program has turned a profit. And it has been demonstrably effective: it lent money to Tesla to build its factory in Fremont, California, when the private sector would not, for instance. Every Tesla you see on the road came from a facility financed by the D.O.E. Its loans to early-stage solar-energy companies launched the industry. There are now 35 viable utility-scale, privately funded solar companies—up from zero a decade ago. And yet today the program sits frozen. “There’s no direction what to do with the applications,” says the young career civil servant. “Are we shutting the program down?” They’d rather not, but if that’s what they are going to do, they should do it. “There’s no staff, just me,” says the civil servant. “People keep bugging me for direction. It’s got to the point I don’t care if you tell me to tear the program down. Just tell me what you want to do so I can do it intelligently.” Another permanent employee, in another wing of the D.O.E., says, “The biggest change is the grinding to a halt of any proactive work. There’s very little work happening. There’s a lot of confusion about what our mission was going to be. For a majority of the workforce it’s been demoralizing.”  
 **Michael Lewis - Why the scariest nuclear threat may be coming from inside the White House - [Vanity Fair](https://www.vanityfair.com/news/2017/07/department-of-energy-risks-michael-lewis)**
 
+**25 July 2017**  
+Altogether, it takes seven years for the wildebeest bones to fully disintegrate, releasing nutrients like phosphorous and carbon into the river. This slow decomposition, while unpleasant to smell, is crucial for the Mara River ecosystem, sustaining microbes, insects, and fish, as well as large scavengers. In the past, river ecologists had assumed that high levels of dissolved carbon from rotting corpses are unhealthy and unnatural for rivers. But the researchers found  that protected parks actually have more dissolved carbon their rivers compared to unprotected ones, suggesting that less human influence can sometimes mean more putrid rivers.
+
+(…) Unfortunately, there are few ecosystems that can directly compare to the Mara. That’s because humans have disrupted nearly every large herbivore migration on the planet, and continue to kill off these key animals faster than they can kill themselves. It’s practically impossible for human biologists to get an accurate sense of what ecosystems looked like before the loss of large animals, because, according to many paleoecologists, humans have been wiping out large animals since the prehistoric migrations out of Africa.
+
+The human migration across the Bering Strait into the Americas 15,000 years ago was followed by the extinctions of American mammoths and mastodons, giant ground sloths, sabre-tooth cats and giant armadillos. Other continents also suffered losses. When humans first landed in Australia 60,000 years ago, they would have encountered 500-pound kangaroos, 10-foot-tall flightless birds, wombat relatives the size of rhinoceroses, and monitor lizards that grew to over 20 feet long. By 45,000 years ago, all of those species were gone.  
+**Diana Crow - The upside of rotting carcasses - [Smithsonian](https://www.smithsonianmag.com/science-nature/upside-rotting-carcasses-180964183/)**
+
+**25 July 2017**  
+The bees were working the contents  
+of the fenced-in metal trash bin,  
+zigging and scribbling past the goo  
+
+of candy wrappers and the sticky rims  
+of dented cans, entering, as they might  
+a blossom, the ketchup-smeared burger
+
+boxes and the mold-fuzzed, half-eaten  
+fruity snack packs, those food-grade waxes  
+mingling with Band-Aids  
+**Davis McCombs – Dumpster Honey - [New Yorker](https://www.newyorker.com/magazine/2015/08/03/dumpster-honey)**
+
+**15 July 2017**  
+“Willy Spiller’s images are as much a visual document of this incomparable realm as they are a syncopated, colorful poem to the city of New York and its people,” shares publisher Sturm & Drang. In fact, Spiller wasn't going on expeditions to specifically photograph the subway more than using it as a means of transport to arrive at his photo assignments. The shots are a simple byproduct of photographing while he was a passenger like everyone else.  
+**Jessica Stewart - Vintage photos reveal the gritty NYC subway in the 70s and 80s - [My Modern Met](https://mymodernmet.com/willy-spiller-new-york-subway-photography/)**
+
+**13 June 2017**  
+You watch more. There’s a video of her interviewing a basil plant and two of her reading out loudfrom the Bible. In one, her nose spontaneously starts bleeding. All of her videos are like this: unsettling, repetitive, sparse. Imagine anime mixed with a healthy heap of David Lynch, a dash of Ariana Grande, and one stick of bubblegum. There are a few characters who appear in the videos besides Poppy—one of her recurring guests is a talking mannequin.
+
+Most of her videos are too unnerving to watch from beginning to end for reasons that are hard to put your finger on. You find yourself scrolling to the comments in the middle of the more unsettling scenes, the digital equivalent of turning to a friend in the movie theater and gauging their reaction to the batshit thing you just saw onscreen.  
+**Lexi Pandell - Welcome to Poppy’s world - [WIRED](https://www.wired.com/2017/06/shes-poppy/)**
+
+**12 June 2017**  
+Making matters worse is the astonishing “safety” record of the chemical industry. Between January and August 2016, China suffered 232 accidents in chemical factories, such as leaks, fires and explosions—almost one a day. Since around a fifth of these factories are in China’s most productive agricultural areas or near rivers used for irrigation, many of the spilled chemicals end up in fields. Chemical factories are not the only culprits. About 150km from Mr Tang’s village, in a town called Chenzhou, part of a lead and zinc mine collapsed in 1985, flooding nearby farms with arsenic, a by-product of mining. Arsenic concentrations in the soil were 24 times the legal limit 30 years later.
+
+The second big problem is that land is being poisoned by “sewage irrigation”. Wastewater and industrial effluent are used in increasing amounts for irrigation because there is not enough fresh water to go round. In the north of China there is less water available per person than in Saudi Arabia, so farmers use whatever they can get. China produces over 60bn tonnes of sewage a year and in rural areas only 10% of it is treated. Most of the sludge goes into lakes and rivers, and thence onto fields.
+
+A study in 2014 found that 39 out of 55 areas using sewage irrigation were contaminated by cadmium, arsenic and other poisons and that the accumulation of heavy metals in intensively irrigated areas was rising. An earlier study from 2010 found that water along 18% of the length of China’s rivers was too polluted for use in agriculture. It is used anyway.  
+**The most neglected threat to public health in China is toxic soil - [The Economist](https://www.economist.com/briefing/2017/06/08/the-most-neglected-threat-to-public-health-in-china-is-toxic-soil)**
+
+**9 June 2017**  
+One of the most influential art historians of the era was Johann Joachim Winckelmann. He produced two volumes recounting the history of ancient art, Geschichte der Kunst des Alterthums (1764), which were widely read and came to form a foundation for the modern field of art history. These books celebrate the whiteness of classical statuary and cast the Apollo of the Belvedere — a Roman marble copy of a Hellenistic bronze original — as the quintessence of beauty. Historian Nell Irvin Painter writes in her book The History of White People (2010) that Winckelmann was a Eurocentrist who depreciated people of other nationalities, like the Chinese or the Kalmyk.
+
+The Apollo Belvedere, now at the Vatican Museums, was viewed in the 18th century as the model of beauty. Artists became fascinated with the statue after its discovery in the late 15th century, including Albrecht Dürer. (photo by Marie-Lan Nguyen/Wikimedia)
+
+“Color in sculpture came to mean barbarism, for they assumed that the lofty ancient Greeks were too sophisticated to color their art,” Painter writes. The ties between barbarism and color, civility and whiteness would endure. Not to mention Winckelmann’s pronounced preference for sculptures of gleaming white men over women. Regardless of his own sexual identity — which may have been expressed in this preference — Winckelmann’s gender bias would go on to have an impact on white male supremacists who saw themselves as upholding an ideal.  
+Sarah E. Bond - Why We Need to Start Seeing the Classical World in Color - [Hyperallergic](https://hyperallergic.com/383776/why-we-need-to-start-seeing-the-classical-world-in-color/)
+
