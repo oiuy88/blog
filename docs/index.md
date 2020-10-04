@@ -375,5 +375,18 @@ Pour Jean-Laurent Cassely, cette véritable «anomalie sociologique» trouve son
 **Elena Scappaticci – Quand les surdiplômés déclarent la guerre aux «jobs à la con » - [Le Figaro](https://www.lefigaro.fr/entrepreneur/2017/05/29/09007-20170529ARTFIG00072-quand-les-surdiplomes-declarent-la-guerre-aux-jobs-a-la-con.php)**
 
 **24 May 2017**  
-Monreale [(wikimedia)](https://upload.wikimedia.org/wikipedia/commons/0/0a/Sicilia_Monreale4_tango7174.jpg)
-![Monreale](https://oiuy88.files.wordpress.com/2017/05/screen-shot-2017-05-24-at-15-16-57.png?w=620&h=293 "Monreale")
+Monreale  
+![Monreale](https://oiuy88.files.wordpress.com/2017/05/screen-shot-2017-05-24-at-15-16-57.png?w=620&h=293 "Monreale")  
+[Wikimedia](https://upload.wikimedia.org/wikipedia/commons/0/0a/Sicilia_Monreale4_tango7174.jpg)
+
+**22 May 2017**  
+Who owns land is one of England’s most closely-guarded secrets. This map is a first attempt to display major landowners in England, combining public data with Freedom of Information requests. To follow the investigation and help us fill in the gaps, visit the Who Owns England? blog.  
+Guy Shrubsole and Anna Powell-Smith - [Who owns England?](https://map.whoownsengland.org/)
+
+**22 May 2017**  
+The effect of Dodge’s realm – the LA art world – on her work has been profound. “I tend to think of writing almost structurally – I’m a kind of formalist – and my ideas about how to solve problems don’t always come from other books.” It was a culture shock, moving to LA from New York, as she did many years ago now. But it was also freeing. “There’s no pedestrian culture here. You’re never going to walk into a bookstore and see what everyone is reading, and therefore you can drift. That can be bad, but it’s also good: you don’t respond to trends, you follow strange leads.”
+
+Writing has always been something I do feverishly, along with trying to make ends meet. But I also know that if you spend too much time thinking about a simulacrum of yourself, it takes you away from the act of writing. You need to shut everything out. I think of ideas as murmuring things you have to let talk to you in a quiet room, and that requires a lot of concentration as I get older.”
+
+Perhaps, in the end, everything will continue just as it was before. “The world is full of distractions,” she says, softly. “And I have to listen more and more closely.”  
+**Interview with Maggie Nelson - [The Guardian](https://www.theguardian.com/books/2017/may/21/argonauts-maggie-nelson-the-red-parts-interview-rachel-cooke)**
