@@ -18,7 +18,7 @@ How many combinations of unintended consequences and human reactions to them doe
 The problem with all forms of expertise in public policy is that it is often the most formidable salespeople who claim greater certainty than the evidence allows who are invited to jet around the world advising governments. But the irony for behavioural scientists is that this is a product of them trading off, and falling prey to, the very biases they have made their names calling out.
 
 I can only imagine how easy it might have been for Johnson to succumb to confirmation bias in looking for reasons to delay a lockdown: what prime minister wants to shut down the economy? And it is the optimism bias of the behavioural tsars that has led them to place too much stock in their own judgment in a world of limited evidence. But this isn’t some experiment in a university psychology department - it is a pandemic and lives are at stake.  
-**Sonia Sodha -  Nudge theory is a poor substitute for hard science in matters of life or death - [The Observer](https://www.theguardian.com/commentisfree/2020/apr/26/nudge-theory-is-a-poor-substitute-for-science-in-matters-of-life-or-death-coronavirus)**
+**Sonia Sodha - Nudge theory is a poor substitute for hard science in matters of life or death - [The Observer](https://www.theguardian.com/commentisfree/2020/apr/26/nudge-theory-is-a-poor-substitute-for-science-in-matters-of-life-or-death-coronavirus)**
 
 **28 April 2020**  
 “Pero no es que el sistema esté roto es que funciona así”, nos recuerda Carlos Fernández Liria: “El capitalismo no genera ocio, sino paro, que no es lo mismo. Paro y trabajo excesivo; pero de repartir nada, porque económicamente es imposible, la economía se pondría enferma con ese reparto”, así que entre la economía y nosotros, el sistema prefiere que enfermemos nosotros.
@@ -90,7 +90,7 @@ For the millions of slaves laboring in Southern agriculture, the notion of perma
 **13 July 2019**
 3:AM: You’ve said recently of *London* that “It’s a joke about a man who thinks he’d be happier if London was more like Paris.”  
 PK: In the 1990s, especially in the early years of the Labour government, there was a widespread view that London would be a much better place if it could become more like a European city. Richard Rogers, especially in the post-1997 context of the Urban Task Force, and the Architecture Foundation, co-founded by Ricky Burdett, who later became a kind of architectural fixer for the capital, were among the leaders of this tendency, and the peak of its influence was probably in 1999, when the RIBA awarded its Royal Gold Medal not to an architect, but to the city of Barcelona. When Pasqual Maragall came to accept the award, he made a speech in which he compared London under Thatcher to Spain under Franco. In the end, however, the Barcelonaisation of London seems to have consisted of a few landmark buildings, notably Tate Modern, the refurbishment of Trafalgar Square, the Jubilee Line extension, a lot of restaurants, and phenomena such as the gentrification of now-fashionable mid-20th century public-sector housing developments and the annual London Festival of Architecture. London has been equipped with the kind of culture that makes life tolerable for educated international bankers, but the revival of urbanism that Rogers and his milieu continue to argue for has not really progressed very far, other than in contexts such as the Olympic Games: ‘High Street 2012’, for example. Instead the city was thrown open to international finance, and has become notorious for its extraordinary economic inequality. It is surprising how many artists and other creative types formerly associated with London now live elsewhere, usually in places where space is cheaper, and everyday life much easier to enjoy.  
-**Interview with Patrick Keiller: The future of landscape - [3:AM magazine](https://www.3ammagazine.com/3am/the-future-of-landscape-patrick-keiller/)**
+**Interview with Patrick Keiller - The future of landscape - [3:AM magazine](https://www.3ammagazine.com/3am/the-future-of-landscape-patrick-keiller/)**
 
 **31 May 2019**  
 Thoughts on Claire Denis’ High Life  
@@ -101,7 +101,7 @@ Incest: as the logical end-point of this self containment / self sufficiency. Mo
 Today, the [Irish] landscape is greener than it has ever been. Much of the country is an expanse of bright fields of monoculture rye grass which is grazed by millions of cows. There is nothing natural about this vivid shade of green. It is, quite literally, artificial – the result of the application of chemical nitrogen fertiliser. Far from being an indicator of intrinsic fertility, the green of Ireland’s fields today is distinctly unnatural.
 
 If today’s glossy green is the result of man-made chemicals, does the Irish landscape have a ‘natural’ colour palette? Can we imagine the land before humans exerted such a strong influence on its form and appearance?  
-**Ella McSweeney – The colour of Ireland - [National Gallery of Ireland](https://www.nationalgallery.ie/art-and-artists/exhibitions/past-exhibitions/shaping-ireland-landscapes-irish-art/colour-ireland)**
+**Ella McSweeney - The colour of Ireland - [National Gallery of Ireland](https://www.nationalgallery.ie/art-and-artists/exhibitions/past-exhibitions/shaping-ireland-landscapes-irish-art/colour-ireland)**
 
 **18 March 2019**  
 Compilation literature—I’m using a term invented by the Byzantinist Catherine Holmes here—is produced by copying, summarizing, reordering, updating, and excerpting pre-existing material, and shaping these materials to fit the author-compiler’s current situation or eventual goal. Byzantine compilation literature spans genres: military handbooks, agriculture, hagiography, medicine, law, moralizing literature, and dream interpretation are all locations where we can see Byzantine authors employing these methods. The sheer predominance of compilation literature suggests that it was highly efficacious for Byzantine persons—that producing texts in this way was productive, solved problems, was useful and effective.  
@@ -110,7 +110,7 @@ Compilation literature—I’m using a term invented by the Byzantinist Catherin
 **13 March 2019**  
 “Well never see bison roaming the entire Great Plains again,” said Proctor. “We’ll never see 20 million to 30 million bison again. No one is trying to go back in time. We’re trying to go forward. We’re trying to restore this important animal where we can, where people want them, and to the level where they will help restore the natural balance.”
 For any of this to happen, Native American tribes will be key. They have the land and the desire to bring back the continent’s largest land mammal. And it’s not just bison, Proctor said. They have been instrumental in conserving wolves, grizzly bears, swift foxes and black-footed ferrets among other species.  
-**Jeremy Hance - How Native American tribes are bringing back the bison from brink of extinction -  [The Guardian](https://www.theguardian.com/environment/2018/dec/12/how-native-american-tribes-are-bringing-back-the-bison-from-brink-of-extinction)**
+**Jeremy Hance - How Native American tribes are bringing back the bison from brink of extinction - [The Guardian](https://www.theguardian.com/environment/2018/dec/12/how-native-american-tribes-are-bringing-back-the-bison-from-brink-of-extinction)**
 
 **18 November 2018**  
 «D’une manière générale, faire pipi et caca dans l’eau n’est pas une bonne idée. Toute la richesse du produit se retrouve complètement diluée au départ et cela pose problème pour la récupérer après», précise Bruno Tassin, directeur de thèse de Fabien Esculier et membre d’OCAPI. Sans compter l’énergie et les frais pour traiter les eaux usées en aval. C’est pourquoi le programme de recherche planche sur une séparation des excréments à la source. Urine d’un côté, matière fécale de l’autre. Façon aussi de limiter les contaminations.
@@ -141,7 +141,7 @@ The word Barthes uses is *délicatesse* - a beautiful sequence of syllables to w
 
 **15 September 2018**  
 The salient point remains that after the Reformation much of late Tudor London was in a ruined condition, with walls and gateways and ancient stone windows to be glimpsed among the shops and houses which lined the lanes and thoroughfares. Even in the area outside the walls, where the palaces of the bishops and nobles had led down from the Strand towards the river, the grand houses were, according to the Venetian ambassador, ‘disfigured by the ruins of a multitude of churches and monasteries’.  
-**Peter Ackroyd, London: The Biography, 2000**
+**Peter Ackroyd - London: The Biography, 2000**
 
 **14 September 2018**  
 I’m a wildlife biologist. Decades ago, I visited a team working to restore streamsides churned to bare gravel by placer mining. They were planting willow and alder in hopes of stabilizing the banks and preventing further erosion. Other vegetation could then move in and once again shade the passing waters, cooling them for native trout and spawning salmon. I was already picturing songbirds returning to nest in the lush foliage while mink, otters, and bears patrolled the shores, except the normally hardy willow and alder wouldn’t grow. They withered instead, and the banks stayed empty — until the team prepared the next batch to be planted by first soaking their roots in a broth containing certain fungi. This is common practice today. It wasn’t then. Besides changing the way I’ve planted trees at home ever since, the visit made me realize that my view of the most important wildlife in ecosystems might be upside-down.
@@ -173,7 +173,7 @@ Studying early childhood behavior, [Karl Groos] noted infants' delight at being 
 
 **22 April 2018**  
 However, as the long process of compulsory purchase, eviction and demolition was under way, between 1890 and 1895, it became clear that no philanthropic company was willing to come forward. And so, very reluctantly, the home secretary permitted the LCC to construct the dwellings, on the understanding that these would quickly be sold on to the charitable sector. The LCC was not to act as a landlord. Antipathy towards state intervention in housing was put most colourfully in Parliament by the member for Portsmouth, who told the house that such a thing was “monstrous”, and that “if such a principle were admitted, I do not know where it will stop. The next demand made of Parliament might be to provide clothing, if not carriages and horses, for the poor”.  
-**Sarah Wise - The battles of Boundary Street – [The Planner](https://www.theplanner.co.uk/features/the-battles-of-boundary-street)**
+**Sarah Wise - The battles of Boundary Street - [The Planner](https://www.theplanner.co.uk/features/the-battles-of-boundary-street)**
 
 **31 March 2018**  
 When I was in [country in question] last [week/month/August], I was amazed byomhe [people’s basic desire for a stable life/level of Westernization for such a closed society/variety of the local cuisine], and that tells me two things. It tells me that the citizens of [country in question] have no shortage of [courage/potential entrepreneurs/root vegetables], and that is a good beginning to grow from. Second, it tells me that people in [country in question] are just like people anywhere else on this great globe of ours.  
@@ -187,7 +187,7 @@ This was true, apparently, even of the now reviled tower blocks.  People met in 
 (…) If you know the Pepys Estate or its sometime reputation, you’ll know there’s one other thing I haven’t mentioned – race.  The Estate was in its early years and for some time an almost exclusively white estate, this the result of a more or less formal policy operated by the GLC.  As one former council housing officer describes”
 
 “It wasn’t as simple as ‘We don’t want black people living there’.  It was more like an assumption that black and white would rather live separately from one another.  So, as you go down the Old Kent Road you can see some estates are white and others are black or mixed. It didn’t happen by accident. Housing officers just didn’t allocate black people to [the Pepys Estate].”  
-**The Pepys Estate, Deptford: from ‘Showcase’ to ‘Nightmare’ – [Municipal Dreams](https://municipaldreams.wordpress.com/2015/08/11/the-pepys-estate-deptford-showcase-to-nightmare/)**
+**The Pepys Estate, Deptford: from ‘Showcase’ to ‘Nightmare’ - [Municipal Dreams](https://municipaldreams.wordpress.com/2015/08/11/the-pepys-estate-deptford-showcase-to-nightmare/)**
 
 **16 February 2018**  
 Il s’agissait d’une loi permettant de poursuivre, voire d’emprisonner, ceux qui hébergent et aident des étrangers en situation jugée illégale. Ce « délit d’hospitalité » (je me demande encore qui a pu oser associer ces mots) est passible d’emprisonnement. Que devient un pays, on se le demande, que devient une culture, que devient une langue quand on peut y parler de « délit d’hospitalité », quand l’hospitalité peut devenir, aux yeux de la loi et de ses représentants, un crime ?
@@ -246,7 +246,7 @@ But in Fleet Road, Alexandra Road, etc I began to reject the notion of modernism
 
 **5 November 2017**  
 The very sobriety of Georgian architecture, meanwhile, is what has made it so commercially expedient. Flat walls of yellow brick and simple grids of windows mean it can fill any plot of land and allow for endless repetition, while the general flimsiness can be hidden behind signifiers of permanence and solidity. Its easy negotiation of building codes and its suitability to historically sensitive areas has made it indispensable to developers, too, so it’s easy to see why this often shoddily built pastiche rubbish has become so endemic.  
-**Interview with Pablo Bronstein -  Land of tassels, swags and sash windows: a swipe at Britain's pseudo-Georgian wonderland - [The Guardian](https://www.theguardian.com/artanddesign/2017/sep/24/pablo-bronstein-britain-pseudo-georgian-architecture-riba)**
+**Interview with Pablo Bronstein - Land of tassels, swags and sash windows: a swipe at Britain's pseudo-Georgian wonderland - [The Guardian](https://www.theguardian.com/artanddesign/2017/sep/24/pablo-bronstein-britain-pseudo-georgian-architecture-riba)**
 
 **2 November 2017**  
 In Tucson, Arizona, for example, house finches have developed longer and wider beaks than their rural counterparts to more easily consume sunflower seeds in bird feeders. In Puerto Rican cities, lizards’ toes have evolved to grip and move more easily on artificial surfaces, like concrete or brick. Several studies have also shown that urban pollution can increase mutation rates of DNA in birds and mammals. A new species of mosquito appears to be emerging that survives underground in sewers and subways.  
@@ -257,7 +257,7 @@ In Tucson, Arizona, for example, house finches have developed longer and wider b
 
 **15 October 2017**  
 A cynical view of Crowdtap is that it’s just another form of social media marketing — people being paid to tell their friends to buy things. But then you realize that these people don’t have large social media followings (in fact, Crowdtap users I interviewed said they create throwaway social media accounts to use exclusively for Crowdtap). And sharing content on social media isn’t even required — the default option is to share, but you get your points either way. Crowdtap passes members’ responses on to brands, but otherwise nobody is listening to what they say. No one is responding. There’s very little about this that might be called social. Imagine someone wandering alone in a giant desert, shouting “I love Big Macs!” into the sky. That’s Crowdtap.  
-**Daniel Carter - The only job a robot couldn’t do – [The Outline](https://theoutline.com/post/2393/the-only-job-a-robot-couldn-t-do)**
+**Daniel Carter - The only job a robot couldn’t do - [The Outline](https://theoutline.com/post/2393/the-only-job-a-robot-couldn-t-do)**
 
 **10 October 2017**  
 3 stars: Not compatible with older Macbook Pros  
@@ -277,11 +277,11 @@ Written by WILLIAM B H from Cambridge 02-Jan-2011
 Winter of discontent
 
 To write your killer draft, ask yourself:  
--Do I have a strong, emphathetic opening that taps into my readers’ pain points?
--Do I acknowledge my readers’ dreams, desires, fears, and frustrations throughout the post?
--Have I engineered irresistible subjeads to keep people reading instead of just scanning?
--Have I incorporates the language my audience uses to help them connect with the content?
--Have I used short paragraphs and rich formatting (e.g. bullet points) to improve readability?
+-Do I have a strong, emphathetic opening that taps into my readers’ pain points?  
+-Do I acknowledge my readers’ dreams, desires, fears, and frustrations throughout the post?  
+-Have I engineered irresistible subjeads to keep people reading instead of just scanning?  
+-Have I incorporates the language my audience uses to help them connect with the content?  
+-Have I used short paragraphs and rich formatting (e.g. bullet points) to improve readability?  
 -Do I have a powerful closing that inspires my readers to take an immediate next step?
 
 **7 October 2017**  
@@ -294,13 +294,13 @@ All Microsoft Windows Startup and showdown sounds including beta's or prototypes
 
 **16 August 2017**  
 But the part of the movement that is willing to go all the way is still very small. The most popular figure in U.S. politics right now is Bernie Sanders—a Jewish socialist—while Trump’s popularity is at an all-time low. A purely oppositional politics to the far right will be a game of eternal whack-a-mole if the only vision of the future to be found in the aimless desert of meaning created by the political establishment is the nightmarish Silicon Valley model of modernity. The creation of a politics that offers something meaningful, beautiful, hopeful, new, and utopian is the project for which there is no shortcut. To take the bigger picture from this sorry story, it should be the job of our generation to create it.  
-**Angela Nagle – Goodbye Pepe - [The Baffler](https://thebaffler.com/latest/goodbye-pepe)**
+**Angela Nagle - Goodbye Pepe - [The Baffler](https://thebaffler.com/latest/goodbye-pepe)**
 
 **1 August 2017**
 Another critic of the crackdown is Dr. Ugo Rossi, a geographer at the University of Turin and author of the book Cities in Global Capitalism. He points out that the law is a response to fundamental changes to the underlying character of Italian city centers. “It’s a structural problem” Rossi says, “one that is particularly evident in Rome and other tourist-dominated cities.” Thanks to the deregulation of the housing market and the rise of home-sharing services like Airbnb, the hearts of many historic Italian towns have become increasingly oriented towards tourist accommodation and businesses, “emptying” them of local residents. “What increasingly replaces them are tourists—or in cities such as Bologna, students—who are not respectful of public space,” says Rossi. “As a result city centers are now just places of consumption rather than residency—ones that are no longer used by local people.”
 
 Not all cities suffer equally from residential displacement, however. “The city centers that have survived this kind of transformation are those in southern Italy’s major cities, such as Naples, Palermo, Bari” says Rossi, “where despite some touristification many people are still living in the city core. So reflexes like [the Daspo Urbano] are on the one hand related to anxieties about security, and on the other about fears of a loss of authenticity, or local people who are more protective of their environment.”  
-**Fergus O’Sullivan - Why is Italy banning everything – [CityLab](https://www.bloomberg.com/news/articles/2017-07-31/italy-cracks-down-on-tourist-behavior-in-central-cities)**
+**Fergus O’Sullivan - Why is Italy banning everything - [CityLab](https://www.bloomberg.com/news/articles/2017-07-31/italy-cracks-down-on-tourist-behavior-in-central-cities)**
 
 **27 July 2017**  
 Baker had opportunities in France that a black woman did not have in segregated US society and she did not have to deal with the daily outrage of a color line. At the same time the French and European obsession with Baker’s ‘primitivism’, which she played into with her famous banana dance, spoke to a racism magnetized by the erotic possibilities of blacks. In the twilight of European colonialism she symbolized the elusive native, the one who sang, danced, and tantalized but remained independent. Emerging half-naked on stage from a giant cage, Baker capitalized on barely-repressed European racial fantasies and turned them into a personal fortune. As she said, “Leers and dirty looks are two sides of the same coin.”
@@ -332,7 +332,7 @@ a blossom, the ketchup-smeared burger
 boxes and the mold-fuzzed, half-eaten  
 fruity snack packs, those food-grade waxes  
 mingling with Band-Aids  
-**Davis McCombs – Dumpster Honey - [New Yorker](https://www.newyorker.com/magazine/2015/08/03/dumpster-honey)**
+**Davis McCombs - Dumpster Honey - [New Yorker](https://www.newyorker.com/magazine/2015/08/03/dumpster-honey)**
 
 **15 July 2017**  
 “Willy Spiller’s images are as much a visual document of this incomparable realm as they are a syncopated, colorful poem to the city of New York and its people,” shares publisher Sturm & Drang. In fact, Spiller wasn't going on expeditions to specifically photograph the subway more than using it as a means of transport to arrive at his photo assignments. The shots are a simple byproduct of photographing while he was a passenger like everyone else.  
@@ -362,7 +362,7 @@ One of the most influential art historians of the era was Johann Joachim Winckel
 Comment faire pour «ouvrir le corps» tout en chassant l’image répugnante du cadavre ? Dominique Brancher raconte : à l’idée négative de la dissection, l’image anatomique substitue celle, érotique, d’un dévoilement. Il s’agit de jouer sur l’attrait du mystère et de l’interdit. La gynécologie devient donc, en toute bonne logique, le premier bastion à faire sauter : ce savoir, jusqu’ici réservé aux sage-femmes, fait l’objet d’une florissante production sur le marché éditorial français du XVIe siècle. «En 1482 paraît à Lyon la première gravure sur bois représentant une dissection académique». Comme par hasard, «c’est le corps d’une femme éventrée que cernent cinq médecins aux poses hiératiques. Au cours des mêmes années lyonnaises sont publiées les premières gravures de dissections “profanes”, qui accompagnent les éditions du Roman de la Rose : Néron, devant sa mère assassinée, ordonne l’ouverture de l’utérus pour percer le mystère de son origine. […] Près de soixante ans plus tard, dans un style flamboyant et plus sensuel, Vésale fera le même choix audacieux : sur le frontispice ouvrant le De humani corporis fabrica (Bâle, Oporinus, 1543), une foule agitée entoure un cadavre féminin découpé [ci-dessous].»
 
 Les premières images anatomiques sont donc, principalement, des images indécentes de corps féminin qu’une foule de mâles sondent, pénètrent, théorisent, commentent et s’approprient avec une sorte de délectation que le lecteur est invité à partager. «Le genre des “secrets des femmes” constitue une invention proprement européenne, souligne Dominique Brancher. Cette invention prétend distiller, sur le ton de la confidence, un savoir ésotérique et fonde son efficacité culturelle sur le jeu dialectique de l’exhibition et de la dissimulation, ce qu’on pourrait appeler le “spectacle du secret”. Paradoxalement, pour exister, le secret doit se signaler à ceux qu’il vise et montrer qu’il cache». Montrer qu’il cache : c’est le ressort même de la pornographie qui met l’orgasme féminin en scène, spectaculairement, comme une sorte d’événement dont on ne peut jamais être tout à fait sûr de l’avoir vu. L’orgasme féminin relève de l’invisible. On peut le simuler. Dès lors, en faire des films, c’est comme se condamner à tuer sa mère dans l’espoir de comprendre pourquoi elle vous a mis au monde.  
-Agnès Giard - Gynéco-logique : comment Gutenberg a changé le monde - [Libération](http://sexes.blogs.liberation.fr/2017/05/28/gyneco-logique-comment-gutenberg-change-le-monde/)
+**Agnès Giard - Gynéco-logique : comment Gutenberg a changé le monde - [Libération](http://sexes.blogs.liberation.fr/2017/05/28/gyneco-logique-comment-gutenberg-change-le-monde/)**
 
 **4 June 2017**  
 This map has been created using tree data made available by London’s local authorities and Transport for London. The map shows the locations and species information for over 700,000 trees.  
@@ -372,7 +372,7 @@ This map has been created using tree data made available by London’s local aut
 Pour Jean-Laurent Cassely, cette véritable «anomalie sociologique» trouve son origine dans «l’appauvrissement des tâches des métiers à dominante intellectuelle». Se basant sur de nombreux témoignages recueillis auprès de ces «néo-artisans», le journaliste constate ainsi un décalage croissant entre les attentes de ces jeunes ex-cadres et la réalité du travail qui leur était demandé dans leurs anciens jobs. Un décalage souvent brandi comme le motif principal de leur reconversion. «Beaucoup se voyaient comme avant-garde de la mondialisation, et non comme de bons petits soldats de la suite Microsoft office», résume ainsi le journaliste.
 
 (…) La thèse, pour séduisante qu’elle soit, a cependant ses limites. Comme le note avec humour Jean-Laurent Cassely, on aurait tort de voir dans ces «néo-artisans» de farouches alter-mondialistes résolus à renverser le dogme existant. Bien au contraire. Comme il le démontre brillamment, leurs projets de reconversion s’intègrent parfaitement à l’économie de marché. «Par leur capacité à aborder différents secteurs de l’artisanat sous l’angle abstrait de leur ancienne formation, ils reclassent des secteurs autrefois dévalorisés», nous explique-t-il. S’ils redessinent notre conception de l’organisation du travail, ces «néo-artisans» entretiennent également la logique de gentrification des centres urbains, répondant à la demande d’une clientèle dont ils maîtrisent parfaitement les codes, puisqu’ils en sont issus et qu’ils les côtoient dans les hypercentres urbains désormais réservés aux catégories aisées de la population française.  
-**Elena Scappaticci – Quand les surdiplômés déclarent la guerre aux «jobs à la con » - [Le Figaro](https://www.lefigaro.fr/entrepreneur/2017/05/29/09007-20170529ARTFIG00072-quand-les-surdiplomes-declarent-la-guerre-aux-jobs-a-la-con.php)**
+**Elena Scappaticci - Quand les surdiplômés déclarent la guerre aux «jobs à la con » - [Le Figaro](https://www.lefigaro.fr/entrepreneur/2017/05/29/09007-20170529ARTFIG00072-quand-les-surdiplomes-declarent-la-guerre-aux-jobs-a-la-con.php)**
 
 **24 May 2017**   
 ![Monreale](https://oiuy88.files.wordpress.com/2017/05/screen-shot-2017-05-24-at-15-16-57.png?w=620&h=293 "Monreale")  
@@ -392,7 +392,7 @@ Perhaps, in the end, everything will continue just as it was before. “The worl
 
 **14 May 2017**  
 La première raison du succès politique de la notion de ville compacte, définie comme « villes des petites distances » (entre domicile, lieux d’emploi, commerces, hôpitaux, etc.), est qu’elle apparaît comme un instrument efficace pour réduire les effets négatifs de la décroissance urbaine sur la vie quotidienne des Japonais. À l’instar de ce qui est observé dans les villes en décroissance européennes (Baron et al. 2010), le déclin progresse en perforant les tissus urbains japonais : des commerces ferment, faute d’usagers, ce qui allonge les distances à parcourir pour trouver des magasins ouverts (Iwama 2011) ; une maison vacante non entretenue se détériore et nuit à la qualité de l’environnement résidentiel, etc.  
-**Sophie Buhnik - Contre le déclin, la ville compacte – [Métropolitiques](https://metropolitiques.eu/Contre-le-declin-la-ville-compacte.html)**
+**Sophie Buhnik - Contre le déclin, la ville compacte - [Métropolitiques](https://metropolitiques.eu/Contre-le-declin-la-ville-compacte.html)**
 
 **26 April 2017**  
 Dans la recherche et les médias, l’agriculture urbaine est considérée comme une pratique universellement bénéfique, incapable de générer le moindre désagrément. Pourtant, de plus en plus de chercheur·e·s, souvent issu·e·s de la géographie radicale et critique (Guthman 2008 ; Safransky 2014 ; Tornaghi 2014), ont pris le contre-pied de cette posture, en rappelant que les bénéfices annoncés sont plus controversés qu’au premier abord et sont souvent insuffisamment étayés. Les avantages économiques réels, les services écosystémiques rendus, et les créations d’emplois liés à l’agriculture urbaine demeurent difficiles à évaluer et minimes à ce jour. Il y a peu de preuves de lien direct entre l’occupation des parcelles vacantes par l’agriculture urbaine et la baisse du taux de criminalité (Raleigh et Galster 2014).
