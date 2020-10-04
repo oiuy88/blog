@@ -199,3 +199,6 @@ Il s’agissait d’une loi permettant de poursuivre, voire d’emprisonner, ceu
 But caution about the potential of our cities and suburbs as wildlife habitat is probably still a good idea. One danger is that these landscapes may become “ecological sinks” — that is, places where excess individuals from undisturbed habitat can survive, but not ultimately increase. Having straw-headed bulbuls in central Singapore does not, for instance, ensure survival of the species. Success with some more visible species may also blind us to broader but less obvious declines in other species. European rewilding, for instance, has not been rewilding for its insect population.  
 **Richard Conniff - Habitat on the Edges: Making room for wildlife in an urbanized world - [Yale Environment 360](https://e360.yale.edu/features/habitat-on-the-edges-making-room-for-wildlife-in-an-urbanized-world)**
 
+**3 December 2017**  
+![Near Euston](https://oiuy88.files.wordpress.com/2017/12/2017-12-03-142011-00001.gif?w=720&h=405 "Near Euston")
+
