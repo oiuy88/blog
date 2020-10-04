@@ -176,7 +176,7 @@ However, as the long process of compulsory purchase, eviction and demolition was
 **Sarah Wise - The battles of Boundary Street – [The Planner](https://www.theplanner.co.uk/features/the-battles-of-boundary-street)**
 
 **31 March 2018**  
-When I was in [country in question] last [week/month/August], I was amazed by the [people’s basic desire for a stable life/level of Westernization for such a closed society/variety of the local cuisine], and that tells me two things. It tells me that the citizens of [country in question] have no shortage of [courage/potential entrepreneurs/root vegetables], and that is a good beginning to grow from. Second, it tells me that people in [country in question] are just like people anywhere else on this great globe of ours.  
+When I was in [country in question] last [week/month/August], I was amazed byomhe [people’s basic desire for a stable life/level of Westernization for such a closed society/variety of the local cuisine], and that tells me two things. It tells me that the citizens of [country in question] have no shortage of [courage/potential entrepreneurs/root vegetables], and that is a good beginning to grow from. Second, it tells me that people in [country in question] are just like people anywhere else on this great globe of ours.  
 **Michael Ward - Create your own Thomas Friedman op-ed column - [McSweeney’s](https://www.mcsweeneys.net/articles/create-your-own-thomas-friedman-op-ed-column)**
 
 **31 March 2018**  
@@ -210,7 +210,7 @@ Small grains are “cool season” crops that are planted in the spring and prov
 ![At work](https://oiuy88.files.wordpress.com/2017/10/2017-10-26-171630-0000.gif?w=620&h=496 "At work")
 
 **28 November 2017**  
-Communication
+<span id="communication">Communication  
 
 “It’s a matter of how we engage on the social front there.”
 
@@ -241,8 +241,7 @@ Communication
 **25 November 2018**  
 But in Fleet Road, Alexandra Road, etc I began to reject the notion of modernism as wiping out the past; I embraced a modernism which took on board the notion of a continuing culture and history.
 
-(…) First you have to set up a basic national building authority, then draw up a national document on house building, working on the Parker Morris standards of the 1960s. Morris created “Homes for Today and Tomorrow”, which was an absolutely remarkable adventure into housing. It meant housing could be flexible, with a range of designs; it encouraged experiment. We need a new version of this. These building standards would be used by local authorities, who would build the houses.
-
+(…) First you have to set up a basic national building authority, then draw up a national document on house building, working on the Parker Morris standards of the 1960s. Morris created “Homes for Today and Tomorrow”, which was an absolutely remarkable adventure into housing. It meant housing could be flexible, with a range of designs; it encouraged experiment. We need a new version of this. These building standards would be used by local authorities, who would build the houses.  
 **Interview with Neave Brown - We asked a pioneering architect how to solve the housing crisis - [VICE](https://www.vice.com/amp/en_uk/article/3kvm48/we-asked-a-pioneer-architect-how-to-solve-the-housing-crisis)**
 
 **5 November 2017**  
