@@ -354,8 +354,6 @@ A study in 2014 found that 39 out of 55 areas using sewage irrigation were conta
 **9 June 2017**  
 One of the most influential art historians of the era was Johann Joachim Winckelmann. He produced two volumes recounting the history of ancient art, Geschichte der Kunst des Alterthums (1764), which were widely read and came to form a foundation for the modern field of art history. These books celebrate the whiteness of classical statuary and cast the Apollo of the Belvedere — a Roman marble copy of a Hellenistic bronze original — as the quintessence of beauty. Historian Nell Irvin Painter writes in her book The History of White People (2010) that Winckelmann was a Eurocentrist who depreciated people of other nationalities, like the Chinese or the Kalmyk.
 
-The Apollo Belvedere, now at the Vatican Museums, was viewed in the 18th century as the model of beauty. Artists became fascinated with the statue after its discovery in the late 15th century, including Albrecht Dürer. (photo by Marie-Lan Nguyen/Wikimedia)
-
 “Color in sculpture came to mean barbarism, for they assumed that the lofty ancient Greeks were too sophisticated to color their art,” Painter writes. The ties between barbarism and color, civility and whiteness would endure. Not to mention Winckelmann’s pronounced preference for sculptures of gleaming white men over women. Regardless of his own sexual identity — which may have been expressed in this preference — Winckelmann’s gender bias would go on to have an impact on white male supremacists who saw themselves as upholding an ideal.  
-Sarah E. Bond - Why We Need to Start Seeing the Classical World in Color - [Hyperallergic](https://hyperallergic.com/383776/why-we-need-to-start-seeing-the-classical-world-in-color/)
+**Sarah E. Bond - Why We Need to Start Seeing the Classical World in Color - [Hyperallergic](https://hyperallergic.com/383776/why-we-need-to-start-seeing-the-classical-world-in-color/)**
 
