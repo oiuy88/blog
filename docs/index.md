@@ -374,10 +374,9 @@ Pour Jean-Laurent Cassely, cette véritable «anomalie sociologique» trouve son
 (…) La thèse, pour séduisante qu’elle soit, a cependant ses limites. Comme le note avec humour Jean-Laurent Cassely, on aurait tort de voir dans ces «néo-artisans» de farouches alter-mondialistes résolus à renverser le dogme existant. Bien au contraire. Comme il le démontre brillamment, leurs projets de reconversion s’intègrent parfaitement à l’économie de marché. «Par leur capacité à aborder différents secteurs de l’artisanat sous l’angle abstrait de leur ancienne formation, ils reclassent des secteurs autrefois dévalorisés», nous explique-t-il. S’ils redessinent notre conception de l’organisation du travail, ces «néo-artisans» entretiennent également la logique de gentrification des centres urbains, répondant à la demande d’une clientèle dont ils maîtrisent parfaitement les codes, puisqu’ils en sont issus et qu’ils les côtoient dans les hypercentres urbains désormais réservés aux catégories aisées de la population française.  
 **Elena Scappaticci – Quand les surdiplômés déclarent la guerre aux «jobs à la con » - [Le Figaro](https://www.lefigaro.fr/entrepreneur/2017/05/29/09007-20170529ARTFIG00072-quand-les-surdiplomes-declarent-la-guerre-aux-jobs-a-la-con.php)**
 
-**24 May 2017**  
-Monreale  
+**24 May 2017**   
 ![Monreale](https://oiuy88.files.wordpress.com/2017/05/screen-shot-2017-05-24-at-15-16-57.png?w=620&h=293 "Monreale")  
-**[Wikimedia](https://upload.wikimedia.org/wikipedia/commons/0/0a/Sicilia_Monreale4_tango7174.jpg)**
+**Monreale Cathedral - [Wikimedia](https://upload.wikimedia.org/wikipedia/commons/0/0a/Sicilia_Monreale4_tango7174.jpg)**
 
 **22 May 2017**  
 Who owns land is one of England’s most closely-guarded secrets. This map is a first attempt to display major landowners in England, combining public data with Freedom of Information requests. To follow the investigation and help us fill in the gaps, visit the Who Owns England? blog.  
