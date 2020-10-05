@@ -1101,7 +1101,7 @@ Q: You think prisons won’t be necessary one day?
 It is possible, but even [if it doesn’t happen], we can move to a very different kind of justice that does not require a retributive impulse when someone does something terrible.  
 **Interview with Angela Davis - Angela Y. Davis on what’s radical in the 21st century - [LA Times](https://www.latimes.com/opinion/op-ed/la-oe-morrison-davis-20140507-column.html#page=1)**
 <hr>
-**10 Januarty 2015**  
+**10 January 2015**  
 The railways that had helped Britain become an industrial power, but which were now haemorrhaging money, were to be cut back brutally. The car would replace the train, Beeching decreed. In doing so, he ushered in an era of vast motorway expansion and cheap motorised transport. The train, deemed dirty and smoky, was earmarked for extinction. If Beeching and other transport planners of the day had had their way, only a rump of inter-city lines would have been left.
 
 Today the makeup of UK transport looks very different from the one envisaged by Dr Beeching. Rail passenger figures have almost doubled over the past 10 years; commuter trains are crammed; young people are deserting the car for the train; and Britain’s railway bosses are struggling to meet soaring demands for seats. The legacy of Beeching – dug-up lines, sold-off track beds and demolished bridges – has only hindered plans to revitalise the network, revealing the dangers of having a single, inflexible vision when planning infrastructure.
