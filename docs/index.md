@@ -736,7 +736,9 @@ Ce discours qu’on appelle depuis Aristote économie n’intègre pas sans diff
 **Olivier Assouly - Économie et circularité -  [Revue d'économie financière](https://www.persee.fr/doc/ecofi_0987-3368_1993_num_26_3_2009)**
 <hr>
 **10 December 2015**  
-Dans les sociétés industrielles, le pouvoir portait essentiellement sur le contrôle des biens, des capitaux, des matériaux, des machines. Bref, sur le contrôle du monde de l’objectivité. Avec l’émergence des technologies de l’information et de la communication, il se passe quelque chose d’inouï : ce sont des technologies de construction et de transformation de la subjectivité qui permettent d’agir sur l’acteur humain lui-même. L’enjeu du pouvoir devient ainsi de contrôler, de transformer, de fabriquer les esprits. L’idée n’est pas neuve, évidemment. Nous avons connu, au XXe siècle, l’expérience du totalitarisme dont l’objectif était également le contrôle des esprits par la parole, l’image, la mise en scène ou le culte de la personnalité. Et par la répression de toute opposition. Je n’affirme évidemment pas que nous vivons tous aujourd’hui dans des sociétés totalitaires. Mais j’avance l’idée que le pouvoir devient total. […] L’après-guerre a été dominée par la mise à mort du « sujet », d’un côté par les structuralistes, de l’autre par les marxistes. Je veux le réhabiliter. Et brandir comme un drapeau la « subjectivation » qui est, pour chacun, la prise en charge du sujet en lui, le mouvement par lequel un individu se transforme en acteur social capable de promouvoir et de défendre les droits humains fondamentaux, universels, quand ceux-ci sont bafoués.  
+Dans les sociétés industrielles, le pouvoir portait essentiellement sur le contrôle des biens, des capitaux, des matériaux, des machines. Bref, sur le contrôle du monde de l’objectivité. Avec l’émergence des technologies de l’information et de la communication, il se passe quelque chose d’inouï : ce sont des technologies de construction et de transformation de la subjectivité qui permettent d’agir sur l’acteur humain lui-même. L’enjeu du pouvoir devient ainsi de contrôler, de transformer, de fabriquer les esprits. L’idée n’est pas neuve, évidemment. Nous avons connu, au XXe siècle, l’expérience du totalitarisme dont l’objectif était également le contrôle des esprits par la parole, l’image, la mise en scène ou le culte de la personnalité. Et par la répression de toute opposition. Je n’affirme évidemment pas que nous vivons tous aujourd’hui dans des sociétés totalitaires. Mais j’avance l’idée que le pouvoir devient total.
+
+(…) L’après-guerre a été dominée par la mise à mort du « sujet », d’un côté par les structuralistes, de l’autre par les marxistes. Je veux le réhabiliter. Et brandir comme un drapeau la « subjectivation » qui est, pour chacun, la prise en charge du sujet en lui, le mouvement par lequel un individu se transforme en acteur social capable de promouvoir et de défendre les droits humains fondamentaux, universels, quand ceux-ci sont bafoués.  
 **Interview with Alain Touraine - [Télérama](https://www.telerama.fr/idees/alain-touraine-sociologue-les-nouvelles-technologies-nous-bouleversent-autant-que-la-vapeur-ou-l-electricite,132581.php)**
 <hr>
 **10 December 2015**  
@@ -757,6 +759,7 @@ The problem that Sapphire and Steel have come to solve is, as ever, to do with t
 <hr>
 **11 November 2015**  
 ![Bad design, Karlsruhe](https://oiuy88.files.wordpress.com/2020/10/capture113.png?w=620 "Bad design, Karlsruhe")
+<hr>
 **13 November 2015**  
 There are relations between department store and museum, and here the bazaar provides a link. The amassing of artworks in the museum brings them into communication with commodities, which - where they offer themselves en masse to the passerby - awake in him the notion that some part of this should fall to him as well.  
 **Walter Benjamin - The Arcades Project, L5,5
@@ -786,6 +789,56 @@ Calvert drew most of the pictograms in the friendly, curvaceous style of Transpo
 **29 October 2015**  
 ![Poor Alfie](https://oiuy88.files.wordpress.com/2020/10/img_4218.jpg?w=620 "Poor Alfie")
 <hr>
+**5 October 2015**  
+This is not to say that communities of color have not articulated a desire for and developed noteworthy urban agriculture projects. Often under the banner of “food justice,” activists attempt to use sustainable local food systems not only to create environmental sustainability and community, but to address racial and economic inequalities (Alkon and Agyeman 2011, Gottlieb and Joshi 2011). Detroit’s D-Town Farms and the Detroit Black Community Food Security Network, for example, are noteworthy for their longstanding community leadership and their emphasis on creating economic and food security in the black community (White 2010).  
+**Julian Agyeman - Silence is not consent: Urban agriculture, race and inequality - [Just Sustainabilities](https://julianagyeman.com/2014/12/20/silence-not-consent-pesticides-poison-politics-planning-boston/)**
+<hr>
+**5 October 2015**  
+And where rent control is relatively weak, it is just one factor affecting the supply of new housing: for example, zoning laws generally treat apartments as an undesirable use, and thus may restrain housing supply far more aggressively than moderate rent control. Conversely, if government allows lots of new housing construction, new housing will be built as long as rent control is not so strict as to prevent it. Similarly, if government subsidizes new housing or builds new housing itself, the positive results of such construction may be more important than the effects of moderate rent control.  
+**Michael Lewyn - The economics of rent control - [Planetizen](https://www.planetizen.com/node/81150/economics-rent-control)**
+<hr>
+**5 October 2015**  
+As a raw material that, while present, cannot be seen, neon is appropriate to Creed’s work as a whole for it entertains, as one critic has put it, a ‘paradoxical desire to produce both something and nothing’, as seen in his inflated balloon installations, which fill rooms with air.  
+**Martin Creed - Everything is going to be alright - [Tate](https://www.tate.org.ukart/artworks/creed-work-no-203-everything-is-going-to-be-alright-t12799) (broken link)**
+<hr>
+**2 October 2015**  
+Cette violence symbolique qui émerge de ce langage purement technique, très anglo-saxon, renvoie à un pragmatisme qu’il n’est pas question de remettre en question. Je l’ai très mal vécu. Cette langue venimeuse de l’expertise empêche la critique par sa puissance d’intimidation incroyable et elle vous oblige à croire que le réel n’est pas négociable. Elle m’a mis la trouille de me tromper.  
+**Interview with Michel and Monique Pinçon - Les paradis fiscaux, création de la classe dominante - [Humanité](http://www.humanite.fr/monique-pincon-charlot-et-michel-pincon-les-paradis-fiscaux-creation-de-la-classe-dominante-583605)**
+<hr>
+**30 September 2015**  
+“Sometimes I feel as if finance has reacted to the crisis the way a motorist might after a near-accident,” said the City veteran at a small credit rating agency whose wife had almost chucked his phone into a lake at the height of the panic. “There is the adrenaline surge directly after the lucky escape, followed by the huge shock when you realise what could have happened. But as the journey continues and the scene recedes in the rear-view mirror, you tell yourself: maybe it wasn’t that bad. The memory of your panic fades, and you even begin to misremember what happened. Was it really that bad?”
 
+He was a soft-spoken man, the sort to send a text message if he is going to be five minutes late to a meeting. But now he was really angry: “If you had told people at the height of the crisis that years later we’d have had no fundamental changes, nobody would have believed you. Such was the panic and fear. But here we are. It’s back to business as usual. We went from ‘We nearly died from this’ to ‘We survived this’.”  
+**Joris Luyendijk -  How the banks ignored the lessons of the crash - [The Guardian](https://www.theguardian.com/business/2015/sep/30/how-the-banks-ignored-lessons-of-crash)**
+<hr>
+**29 August 2015**  
+“We didn’t build up this technology [while] understanding the power dynamics and the very real systems of oppression that were just going to follow us online,” Sarkeesian says. “One of the profound things the feminist movement and the civil rights movement did was to change the systems we live in. They didn’t stop every individual being sexist or racist, but they changed the systems that we participated in, so you couldn’t be that way in certain environments.”
 
-https://oiuy88.wordpress.com/page/20/ 
+So, while it’s no longer acceptable for a boss to smack a female employee’s behind at work – and we can thank feminism for that – men are still getting rewarded with social status online for abusing women. We haven’t figured out how to change that system. At least, not yet.  
+**Interview with Anita Sarkeesian - The word “troll” feels too childish. This is abuse - [The Guardian](https://www.theguardian.com/technology/2015/aug/29/anita-sarkeesian-gamergate-interview-jessica-valenti)**
+<hr>
+**28 August 2015**  
+Other scholars have variously described the ‘knight v snail’ motif as a representation of the struggles of the poor against an oppressive aristocracy, a straightforward statement of the snail’s troublesome reputation as a garden pest, a commentary on social climbers, or even as a saucy symbol of female sexuality.  It is possible that these images could have meant all these things and more at one time or another; it is important to remember, as Michael Camille, who devoted a number of pages to this subject, once wrote: ‘marginal imagery lacks the iconographic stability of a religious narrative or icon’.  
+**Sarah J Biggs - Knight v snail - [British Library blog](https://britishlibrary.typepad.co.uk/digitisedmanuscripts/2013/09/knight-v-snail.html)**
+<hr>
+**28 August 2015**  
+This is Osborne’s political project: It’s about identifying the next stage of market-centred social and economic liberalisation, getting there before anyone else does, then working to make the public and his political opponents accept this stance as The New Normal. First identify the target, then do something bold about it to get ahead of the curve, then make people feel it was always going to be this way.  
+**Jim Waterson - 24 hours with George Osborne - [Buzzfeed](https://www.buzzfeed.com/jimwaterson/george-osborne-in-europe)**
+<hr>
+**25 August 2015**  
+I am not even speaking about what I have done with these sounds — that’s another story, the way in which I organized them. But above all I did listen to them with the greatest respect, trying to understand what they had to say. Here, you’re saying this; oh, there you’re saying that. Do you get along well together? Yes, that seems to work. So we can go on.  
+**Interview with Eliane Radigue - [New York Times](https://www.nytimes.com/2015/08/21/arts/music/eliane-radigue-mining-wisdom-from-11th-century-buddhism.html)**
+<hr>
+**14 August 2015**  
+Kodandaraman is, quite literally, the last silk farmer in his village. Everyone his age and younger has moved on to jobs with small private companies in Bengaluru and beyond. For Kodandaraman too, the travails of the present season have pushed him to consider his alternatives to a profession where he feels there is no respect anymore. “More than money we worry about our reputations. If a bank official comes to your house then everywhere people begin to talk. It’s this loss of reputation that drives so many people to commit suicide,” he said.  
+**Nayantara Narayanan - Amidst a tragic spate of suicides, Karnataka’s farmers are looking for more secure jobs - [Scroll](https://scroll.in/article/747614/amidst-a-tragic-spate-of-suicides-karnatakas-farmers-are-looking-out-for-more-secure-jobs)**
+<hr>
+**9 August 2015**  
+Describe your feelings when you’ve finished a film.  
+AR: First you have the idea there’ll never be more than three spectators. You think you’ll have to leave the country, afraid to face your friends. If the film does poorly, this sentiment persists. The success of *On connaît la chanson* is a complete mystery to me - my 14th film and finally everybody likes it! Once the film is finished I’d like not to think about it any more, but there’s the problem of getting a decent print. For a long period I have the impression that the film is rising from the grave and keeping me from making the next one.  
+**Interview with Alain Resnais - Sight and Sound, December 1998**
+<hr>
+**9 August 2015**  
+Like many places in India, IISC’s leafy Bangalore campus abounds with tribes of monkeys that like to lick the dew off solar panels and chew the electrical cables. Various methods have been tried to drive them off, but so far none have worked, including an ultrasonic monkey repeller that actually seems to attract the primates. “We’ve tried giving them food to lure them away, but they just sit there,” says an exasperated Ramamurthy. “I don’t know what to do.”  
+**Solar power in India - [MIT Technology Review](https://www.technologyreview.com/news/540016/india-solar-technology-and-the-monkey-problem/) (broken link)**
+<hr>
