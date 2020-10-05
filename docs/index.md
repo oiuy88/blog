@@ -762,7 +762,7 @@ The problem that Sapphire and Steel have come to solve is, as ever, to do with t
 <hr>
 **13 November 2015**  
 There are relations between department store and museum, and here the bazaar provides a link. The amassing of artworks in the museum brings them into communication with commodities, which - where they offer themselves en masse to the passerby - awake in him the notion that some part of this should fall to him as well.  
-**Walter Benjamin - The Arcades Project, L5,5
+**Walter Benjamin - The Arcades Project, L5,5**
 <hr>
 **5 November 2015**  
 The result might seem counterintuitive. Indeed, Hewstone told me, other academic experts thought their conclusions were “bonkers”. But as a disciple of Tajfel, Hewstone had always recognised the centrality of group membership to identity. These days, his findings are widely accepted: for group prejudice to be eroded, group identity has to be maintained. In other words, contact itself is not enough.
@@ -923,7 +923,7 @@ We need a new kind of stories, stories that tell us that nature is resilient and
 Since we have a pretty good understanding of the barriers, that is a good place to start. We need to flip the barriers over so they become successful strategies. Rather than something distant, communicators need to make climate change feel like something that is near, personal, and urgent. Rather than doom, we need to emphasize the opportunities that the crisis affords us.
 
 Climate change is an opportunity for economic development — an entire energy system has to be redesigned from the wastefulness of the previous century to a much smarter mode of doing things. It’s a great opportunity to improve global collaboration and knowledge sharing and to create a more just society. So climate change is a fantastic opportunity to encourage our global humanity to emerge. We need to be talking about this.  
-**Interviews with Per Espen Stoknes - How can we make people care about climate change? - [Yale Environment 360](https://e360.yale.edu/features/how_can_we_make_people_care_about_climate_change)**
+**Interview with Per Espen Stoknes - How can we make people care about climate change? - [Yale Environment 360](https://e360.yale.edu/features/how_can_we_make_people_care_about_climate_change)**
 <hr>
 **21 July 2015**  
 The boundary between the nineteenth-century Orient (as the Near East used to be called) and Europe was the place where cholera was controlled. Various quarantine practices were set up every year in and around the Mecca pilgrimage, because there was constant European anxiety that this mass movement – in a place that is just adjacent to Europe – would introduce cholera into Europe itself. So that boundary, which was not an actual territorial border but, rather, an important part of how Europe defined itself in relation to its most adjacent neighbour, the Orient, was made meaningful through very specific, very grounded, practices of inspecting people, putting them in quarantine camps, and monitoring or restricting their movement.
@@ -936,9 +936,137 @@ The boundary between the nineteenth-century Orient (as the Near East used to be 
 **Joanna Biggs - A day’s work - [LRB](https://www.lrb.co.uk/the-paper/v37/n07/joanna-biggs/a-day-s-work)**
 <hr>
 **31 May 2015**  
-“Both of these schemes were driven by a preoccupation with trying to express the individual dwelling within a much bigger overall complex,” says Macintosh, when we meet at Leigham Court Road. “We were fighting against the blunt anonymity of the monotonous slab blocks that were popping up everywhere at the time.”
+“Both of these schemes were driven by a preoccupation with trying to express the individual dwelling within a much bigger overall complex,” says Macintosh, when we meet at Leigham Court Road. “We were fighting against the blunt anonymity of the monotonous slab blocks that were popping up everywhere at the time.”  
 **Interview with Kate Macintosh - The battle to save Lambeth's modernist sheltered housing - [The Guardian](https://www.theguardian.com/artanddesign/architecture-design-blog/2014/apr/18/the-battle-to-save-lambeths-modernist-sheltered-housing)**
 <hr>
+**24 May 2015**  
+Of course, Cervantes brings his characters closer in than Perec, making him the more approachable writer, and perhaps the comparison should end at the layers and gamesmanship, but it is true that in each book the overriding structure is incomplete without the individually inconsequential stories running between the sheets. Perec said something like one way to read his books is laying on the couch. The truth in that statement is in the idea that to read Life A Users Manual one is best advised to put away the thoughts of the “Knight’s Tour” that gives the book its structure, not wonder whether the book is the depiction of a painting or a moment in time, but to start with the stories, for to see the forest in this case is to look closely at the trees.  
+**Bud Parr - Searching for Rue Simon Crubellier - [Words Without Borders](https://www.wordswithoutborders.org/dispatches/article/searching-for-rue-simon-crubellier)**
+<hr>
+**11 May 2015**  
+All this is inseparable from the matter of Europe. After all, the essential British argument over the EU is about who does what, at what level. That’s what people will be looking at in the probably paltry results of Cameron’s self-styled renegotiation with Brussels.
 
+But another word for such multilayered arrangements is, precisely, federalism. In fact, Cameron’s first government did an exhaustive exercise looking at all the different powers exercised by the EU – and then buried the results because they suggested the balance was really not at all bad for Britain. So here too the federal kingdom is what this transformed country needs.  
+**Timothy Garton-Ash - There is one solution to our disunited politics: a Federal Kingdom of Britain - [The Guardian](https://www.theguardian.com/commentisfree/2015/may/09/federal-kingdom-britain-eu-referendum-scotland-snp)**
+<hr>
+**19 April 2015**  
+Q: What is it that foreign investors don’t understand about India?
+Vijayaraghavan: When I talk to investors when they come to India — I probably meet five or six of them a month — they don’t understand the challenges related to scale. In India we don’t have a separate Department of Energy. There’s a separate Ministry of Power. Oil is a separate department, Coal is separate, Petroleum and Natural Gas is separate, and then you have a Ministry of New and Renewable Energy, which is separate from the Ministry of Power. Though the Ministry of Renewable Energy is in charge of renewable energy, the moment the energy is generated, everything else gets handled by the Ministry of Power.
+
+Further, in India, power is what is called a “concurrent subject.” What that means is that there are federal regulations, and each state has its own interpretation of those regulations. So what might work in one state might not be able to be replicated in another state, even from a fundamental business-model perspective.  The laws are different, the mandates are different, the grids are so different, the fees and the surcharges are different, the policies are different, and this is something that investors don’t spend enough time understanding while analyzing the business models.  
+**Interview with Vineeth Vijayaraghavan - What Investors Need To Know About Clean Tech In India - [Forbes](https://www.forbes.com/sites/davidferris/2012/12/11/qa-what-investors-need-to-know-about-cleantech-in-india/#2e962c013243)**
+<hr>
+**19 April 2015**  
+Yet the same mayoralty has produced a sober document called the London Housing Design Guide, which calmly sets out some basic standards for civilised homes – minimum ceiling heights and room sizes; balconies you can actually use – which, as homes tend to last a long time once built, is an important gift to the future. It was pushed through despite opposition from developers, and with the help of mayorally supported pilot projects such as the St Andrews development in east London, and has led to an outbreak of decent, dignified housing where formerly there was junk. Some of its recommendations are now being applied to housing across the country.  
+**Rowan Moore - What will Boris Johnson’s legacy to London be? - [The Guardian](https://www.theguardian.com/artanddesign/2015/apr/19/what-will-boris-johnson-legacy-london)**
+<hr>
+**10 April 2015**  
+At first blush, “no” does not appear to be the kind of word whose meaning you can monkey with. For one thing, there is its length. At just two letters and one syllable, it lacks the pliable properties of longer words. You can’t stuff stuff inside it. (You can say “unfreakingbelievable,” but you cannot say “nfreakingo.”) You can’t mangle it, à la “misunderestimate” or (the finest example I’ve heard lately) “haphazardous.” On the contrary, it is so simple and self-contained that it is a holophrasm, a word that can serve as a complete sentence. (Holophrasms aren’t common in English, but any verb in command form can be holophrastic—“Go,” “Help,” “Run”—and babies just learning to talk use single words to express complex ideas all the time, albeit without regard to grammar: “Ball,” “Up,” “Want.”)
+
+Moreover, the word has the apparent fixity and clarity of a logical operator: like “if,” “then,” “and,” “or,” and “not,” “no” seems designed to be unambiguous. When we ask, in the face of excessive pestering, “What part of ‘no’ don’t you understand?,” what we mean is: “Unless you are a complete cretin, there is no part of ‘no’ that you could possibly misunderstand.”  
+**Kathryn Schulz - What Part of “No, Totally” don’t you understand? - [The New Yorker](https://www.newyorker.com/books/page-turner/what-part-of-no-totally-dont-you-understand)**
+<hr>
+**3 April 2015**  
+One of the pleasures of flash fiction is the impossibility of ever finally defining what it is. From ancient times, as Mr Banks says, human beings have riddled, observed and questioned the world in ways that prove that brevity can be more than just the soul of wit—brevity leaves space for a reader’s imagination, and for imaginative depth. The fabulous and the magical find easier entry into flash fiction than into much traditionally structured narrative. Again, this recalls much older forms—those of the ballad, or the folk tale.  
+**Flash-mob - [The Economist](https://www.economist.com/books-and-arts/2015/04/04/flash-mob)**
+<hr>
+**28 March 2015**  
+The prison’s defining feature, the wall is visible everywhere the inmates go, functioning as an inescapable reminder of their imprisonment. Because the prison buildings were purposely built to a human scale, with none more than two stories in height and all modest in breadth, the wall becomes an outsize presence; it looms everywhere, framed by the cell windows, shadowing the exercise yards, its pale horizontal spread emphasized by the dark vertical lines of the trees. The two primary responsibilities of the Correctional Service — detention and rehabilitation — are in perpetual tension with each other, and the architects felt that single wall could represent both. “We trusted the wall,” Molden said, to serve as a symbol and an instrument of punishment.  
+**Jessica Benco - The radical humaneness of Norway’s prisons - [New York Times Magazine](https://www.nytimes.com/2015/03/29/magazine/the-radical-humaneness-of-norways-halden-prison.html)**
+<hr>
+**18 March 2015**  
+Ultimately, the EU is nothing like the multi-headed monster it is often made out to be. A real problem is that it is very difficult to understand – but that is precisely because the structure tries to maintain balance between 28 separate member countries. The truth about the EU is often very prosaic. The challenge, therefore, is trying to work out the truth from the deafening roar of nonsense.  
+**Robert Ackrill - Five myths about Europe that need busting before the British general election - [The Conversation](https://theconversation.com/five-myths-about-europe-that-need-busting-before-the-british-general-election-38810)**
+<hr>
+**9 February 2015**  
+If you have lived abroad for a long time or are the offspring of parents from different countries – like my kids are – you are likely to find the idea of tribal nationalism bizarre and the attractions of Europe obvious.
+
+If you spend your life hopping across borders and speaking other languages you are likely to view proud, rooted, monolingual citizens of a region or country as somewhat provincial.
+
+And if you are paid by the EU or earn your living feeding off it you are probably going to think the EU is a good thing.  
+**Gareth Harding - Europeople - [EU Observer](https://euobserver.com/opinion/127523)**
+<hr>
+**8 February 2015**  
+Votre langage s’épuise, puis s’éteint lorsque surgit cette angoissante question : comment vais-je–m’en soritr si cette interlocutrice invisible représente l’avenir d’une communication qui dirigera ma vie et si moi-même, quoi que je fasse, je suis déjà membre de son environnement ?  
+**Eric Chauvier - La Crise commence où finit le langage, 2009
+<hr>
+**8 February 2015**
+My picture looks like this: I improvise and find myself in the middle of a complexity beyond my ability to grasp; I am flying. I try to recreate that moment, using my memory or video, but it’s never the same – either I must improvise or I must accept that I can only find back 70% of the complexity.
+
+70% of the complexity may be enough.  
+**Jonathan Burrows - A choreographer’s handbook - [Jonathan Burrows](http://www.jonathanburrows.info/#/menu/?p=photo&t=submenu) (broken link)**
+<hr>
+**2 February 2015**  
+As of right now, the only people I see playing fast and loose with anti-Semites, xenophobes, homophobes, ultranationalists, fascists, neo-Nazis, or far-right outfits of any other description are the flinty, austerian sociopaths of Brussels, Frankfurt and Berlin.
+
+For it is not fascists that they are really afraid of. History shows how elites never have been. Churchill may have defeated Hitler, but in the choice between fascism and socialism in the Greek Civil War, he knew which side his pita was tzatziki’ed.
+
+Rather, it is the sans culottes that makes elite blood run cold. And these days, it appears that the latter-day Jacobins of the Mediterranean are grabbing their pitchforks and sharpening the guillotines.  
+**Leigh Phillips - Austerity Land - [EU Observer](http://blogs.euobserver.com/phillips/2015/01/29/eu-anti-democrats-throw-their-toys-out-the-pram/) (broken link)**
+<hr>
+**28 January 2015**  
+Je suis couché dans un plaid  
+Bariolé  
+Comme ma vie  
+Et ma vie ne me tient pas plus chaud que ce châle écossais  
+Et l’Europe toute entière aperçue au coupe-vent d’un express à toute vapeur  
+N’est pas plus riche que ma vie  
+Ma pauvre vie  
+Ce châle  
+Effiloché sur des coffres remplis d’or  
+Avec lesquels je roule  
+Que je rêve  
+Que je fume  
+Et la seule flamme de l’univers  
+Est une pauvre pensée…  
+**Blaise Cendrars - Prose du Transibérien, 1913**
+<hr>
+**27 January 2015**  
+The fact is that the world is divided between users of the Macintosh computer and users of MS-DOS compatible computers. I am firmly of the opinion that the Macintosh is Catholic and that DOS is Protestant. Indeed, the Macintosh is counterreformist and has been influenced by the “ratio studiorum” of the Jesuits. It is cheerful, friendly, conciliatory, it tells the faithful how they must proceed step by step to reach – if not the Kingdom of Heaven – the moment in which their document is printed. It is catechistic: the essence of revelation is dealt with via simple formulae and sumptuous icons. Everyone has a right to salvation.
+
+DOS is Protestant, or even Calvinistic. It allows free interpretation of scripture, demands difficult personal decisions, imposes a subtle hermeneutics upon the user, and takes for granted the idea that not all can reach salvation. To make the system work you need to interpret the program yourself: a long way from the baroque community of revelers, the user is closed within the loneliness of his own inner torment.  
+**Umberto Eco - Mac vs DOS - [Jowett](https://jowett.web.cern.ch/ecomacdos.htm)**
+<hr>
+**20 January 2015**  
+The longer the visitor stands before these landscapes, the more it becomes clear that their realistically represented subjects are subordinate to their finely painted detailing and decentered arrangements. Like the painter working from her window in the sky, the viewer, virtually hypnotized by the city’s precise hues and resonant tones, becomes lost in the grids of color far below, and steps, as it were, into competing sensations of ascension, suspension, and compression.
+
+(…) In “Whitney Museum Under Construction” (2013), the cantilevered crane and the rising beams of well-engineered gentrification are set against the streaking headlights that curve along the high speed, multicolored lanes of the West Side Highway. The Hudson River, painted in undulating blue, stretches calmly beyond the museum’s construction site, out into an expanse lit up only by arbitrarily positioned boats that themselves seem to be painting lines upon the currents as they cut through the water.  
+**Tim Keane - As Above, So Below: The aerial revelations of Yvonne Jacquette - [Hyperallergic](https://hyperallergic.com/104718/as-above-so-below-the-aerial-revelations-of-yvonne-jacquette/)**
+<hr>
+**20 January 2015**  
+Weather for the blind is a live streaming site of a musical instrument which is played by the weather. The base station is called Weather Warlock and is currently streaming live from New Orleans. In the event that the home stream is down, you can check out the live stream of our “Upstate Warlock”, stationed at Wave Farm in Acra New York.
+
+The weather sensors are mounted to a post and detect temperature, wind, sun, and rain. This all-analog synthesizer produces a wide range of tones and harmonics based around a consonant F major chord with special audio events occurring during sunrise and sunset. This instrument evolved from an earlier incarnation called “Weather Witch”, developed by Mars Brown and Quintron. The very first prototype was called “Singing House” which was debuted by N.O.Airlift in 2011.  
+**[Weather for the blind](http://weatherfortheblind.org/)**
+<hr>
+**20 January 2015**  
+The New York School poets made a big deal about art and artists, but there was only one photographer they abducted: Rudy Burckhardt.
+
+(…) When the pictures started coming, they revealed a syncopated geometry slightly off the city grid. An early portrait of Denby on the roof of their building appears to have been taken from midair, the curious combination of perspective and flattened plane making the pedestrians below look at once perfectly normal and unsettlingly small. Subliminal illusions and affection for the askew lighten Burckhardt’s work from his earliest New York pieces, which highlight architectural details of doorways and uneven sidewalks. Burckhardt politely ignored the themes then dominating photography: his work wasn’t social commentary, and it wasn’t simply pretty, either.  
+**Jordan Davis - Rudy can’t fail - [Poetry Foundation](https://www.poetryfoundation.org/articles/69039/rudy-cant-fail)**
+<hr>
+**19 January 2015**  
+Originally "Speculative Realism" was the title used to describe a specific constellation of topics - realism, materialism, and metaphysics - under discussion at a workshop held at the Goldsmiths College University of London in April of 2007.  Today, however, a new metaphysics - inspired by the "spirit" of speculative realism but also developing beyond it - is currently underway.  "The new materialism," "Continental realism," "the new metaphysics," or "the new realism" all have been used to designate new currents of metaphysics as practiced in the 21st century, largely (although not exclusively) within the Continental tradition.  I group these currents loosely under the broad title of contemporary "speculative philosophy."
+
+A wide variety of names, most popularly Alain Badiou, Quentin Meillassoux, Ray Brassier, Francois Laruelle, Bruno Latour, Isabelle Stengers, Catherine Malabou, and Iain Hamilton Grant - along with many, many others - could be called synonymous with this new current of philosophy which has, in many ways, challenged what contemporary metaphysical philosophy might mean, especially since the philosophies of Kant and Hegel.  
+
+Because this new metaphysics is still very much in a process of development, this guide's approach is pluralistic and porous, for without rigid or concrete borders to determinately "close" the shape of this new process of thought it would be premature to excise who or what may be engaged and encountered when it comes to contemporary metaphysical philosophy.  Thus, this guide offers the first tutorial of its kind in breadth, depth, and scope.  It approaches this new philosophy in a way that is non-hierarchical, invitational, and open-minded - being wary of any supposed "ownership" over "name brands."  In short, the purpose of this guide is more concerned with the ideas and concepts in question rather than specific names, brands, or titles.  
+**Continental realism and materialism: A guide - [After Nature](http://afterxnature.blogspot.com/p/speculative-realism-guide.html)**
+<hr>
+**19 January 2015**  
+I was working on a series of figures, in various media (copperplate, charcoal, silk-screen and acrylics), derived from headlamp-glare on the rain-soaked windscreen that absorbed my attention on a ten hour night-time bus journey from London to Edinburgh. The figure formed by light and rain on a moving screen reconstructed these physical elements as if constructing a four dimensional account of the dynamics of Kandinsky’s and Malevich’s most abstract compositions. This was the first move toward philosophy: abstraction and actuality are identical.
+
+(…) If art had been for me the technique whereby the manipulability of reality was first demonstrated, philosophy now became a continuation of art by different means.  
+**Interview with Iain Hamilton Grant interview - [After Nature](http://afterxnature.blogspot.com/2013/04/iain-hamilton-grant-interview-with.html)**
+<hr>
+**14 January 2015**  
+![Potato 1](https://oiuy88.files.wordpress.com/2015/01/screen-shot-2015-01-14-at-14-47-17.png?w=620 "potato")  
+![Potato 2](https://oiuy88.files.wordpress.com/2015/01/screen-shot-2015-01-14-at-14-58-33.png?w=620 "potato")  
+**John Gerard - The herball, or, Generall historie of plantes,1597 edition - [Botanicus](http://www.botanicus.org/title/b12080317)**
+<hr>
+**14 January 2015**  
+Cette racine, de quelque maniere qu’on l’apprête, est fade & farineuse. Elle ne sauroit être comptée parmi les alimens agréables; mais elle fournit un aliment abondant & assez salutaire aux hommes, qui ne demandent qu’à se sustenter. On reproche avec raison à la pomme de terre d’être venteuse; mais qu’est – ce que des vents pour les organes vigoureux des paysans & des manoeuvres?  
+**“Pomme de Terre” in L’Encyclopédie - [Chicago University](http://artflsrv02.uchicago.edu/cgi-bin/philologic/getobject.pl?c.12:10:14.encyclopedie0513.41651.41657.41660)**
+<hr>
 
 
