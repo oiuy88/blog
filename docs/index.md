@@ -721,4 +721,26 @@ A few years ago, after CBT had started to dominate taxpayer-funded therapy in Br
 “With postnatal depression,” she said, “you’ve gone from a situation in which you’ve been working, earning your own money, doing interesting things – and suddenly you’re at home on your own, mostly covered in sick, with no adult to talk to.” What she needed, she sees now, was real connection: that fundamental if hard-to-express sense of being held in the mind of another person, even if only for a short period each week.  
 **Oliver Burkeman - Therapy wars: the revenge of Freud - [The Guardian](https://www.theguardian.com/science/2016/jan/07/therapy-wars-revenge-of-freud-cognitive-behavioural-therapy)**
 <hr>
+**21 December 2015**  
+Contrairement à la social-démocratie ou à son adversaire marxiste léniniste, la gauche benjaminienne ne croit pas qu’on échappe à la « cage d’acier » (stählernes Gehäuse) du capitalisme, comme la nommait Max Weber, en dévalant la pente de la fatalité historique. Non. La gauche benjaminienne parie sur le seul geste de « saisir le frein d’urgence ».
+
+Saisir le frein d’urgence ? Classiquement le parti du Mouvement, dans ses variantes rivales et ses scissions mimétiques, veut prendre l’ennemi bourgeois de vitesse ; le stratège benjaminien prescrit, lui, de ralentir, de baisser la cadence, de couper les moteurs. Il supplie, avec Obaldia, qu’on le laisse descendre du « grand 8″… Comment s’explique cette bizarrerie programmatique ?  
+**Alexis Lacrois – Walter Benjamin, une gauche à contre-courant - [La Règle du Jeu](https://laregledujeu.org/2013/12/27/15155/walter-benjamin-une-gauche-a-contre-courant/)**
+<hr>
+**18 December 2015**  
+Over time, certain cries became widely adopted, and it is in written accounts and songbooks that we find the earliest records. Print collections of pictures of criers also became known as “Cries”, and although the oldest set in London dates from around 1600, there are those from Paris which predate these by a century. Characteristically, the Cries represented peripatetic street traders or pedlars, yet other street characters were also included from the start. At first, the Cries were supplemented by the bellman and the town crier, but then preachers, beggars, musicians and performers were added as the notion of the Cries of London became expanded by artists and print sellers seeking greater novelty through elaborating upon the original premise.  
+**The Gentle Author - The lost cries of London - [The Guardian](https://www.theguardian.com/cities/2015/nov/24/lost-cries-of-london-liberty-vagabonds-street-theatre)**
+<hr>
+**11 December 2015**  
+Ce discours qu’on appelle depuis Aristote économie n’intègre pas sans difficultés la question de la monnaie. Plus exactement, là où il est question de monnaie, il s’agit le plus souvent d’une économie dégénérée, d’une catégorie dangeureuse de l’échange, de sa perversion, d’un type de mouvement, rectiligne et démesuré, contraire à la perfection du mouvement circulaire, limité et parfaitement accompli.  
+**Olivier Assouly - Économie et circularité -  [Revue d'économie financière](https://www.persee.fr/doc/ecofi_0987-3368_1993_num_26_3_2009)**
+<hr>
+**10 December 2015**  
+Dans les sociétés industrielles, le pouvoir portait essentiellement sur le contrôle des biens, des capitaux, des matériaux, des machines. Bref, sur le contrôle du monde de l’objectivité. Avec l’émergence des technologies de l’information et de la communication, il se passe quelque chose d’inouï : ce sont des technologies de construction et de transformation de la subjectivité qui permettent d’agir sur l’acteur humain lui-même. L’enjeu du pouvoir devient ainsi de contrôler, de transformer, de fabriquer les esprits. L’idée n’est pas neuve, évidemment. Nous avons connu, au XXe siècle, l’expérience du totalitarisme dont l’objectif était également le contrôle des esprits par la parole, l’image, la mise en scène ou le culte de la personnalité. Et par la répression de toute opposition. Je n’affirme évidemment pas que nous vivons tous aujourd’hui dans des sociétés totalitaires. Mais j’avance l’idée que le pouvoir devient total. […] L’après-guerre a été dominée par la mise à mort du « sujet », d’un côté par les structuralistes, de l’autre par les marxistes. Je veux le réhabiliter. Et brandir comme un drapeau la « subjectivation » qui est, pour chacun, la prise en charge du sujet en lui, le mouvement par lequel un individu se transforme en acteur social capable de promouvoir et de défendre les droits humains fondamentaux, universels, quand ceux-ci sont bafoués.  
+**Interview with Alain Touraine - [Télérama](https://www.telerama.fr/idees/alain-touraine-sociologue-les-nouvelles-technologies-nous-bouleversent-autant-que-la-vapeur-ou-l-electricite,132581.php)**
+
+
+
+
+
 https://oiuy88.wordpress.com/page/20/ 
