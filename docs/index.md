@@ -842,3 +842,11 @@ AR: First you have the idea there’ll never be more than three spectators. You 
 Like many places in India, IISC’s leafy Bangalore campus abounds with tribes of monkeys that like to lick the dew off solar panels and chew the electrical cables. Various methods have been tried to drive them off, but so far none have worked, including an ultrasonic monkey repeller that actually seems to attract the primates. “We’ve tried giving them food to lure them away, but they just sit there,” says an exasperated Ramamurthy. “I don’t know what to do.”  
 **Solar power in India - [MIT Technology Review](https://www.technologyreview.com/news/540016/india-solar-technology-and-the-monkey-problem/) (broken link)**
 <hr>
+**8 August 2015**  
+With the opening of Delhi Blue Art Pottery, Singh is credited with having founded the culture of studio pottery in India. Today, potters in the national capital and their work is divided into two broad genres – the traditional village potters settled mainly in Uttam Nagar and the studio potters. But change has touched even the traditional potters hub. Har Kishan, a potter in Uttam Nagar, spent years working with boutiques to perfect the art of terracotta, which he has passed on to the other potters in the colony. After spending time at Delhi Blue Art Pottery, he is now mainly engaged in making glazed ceramic ware.  
+**Poulomi Banerjee - Crafted in clay: The art of pottery in Delhi - [Hindustan Times](https://www.hindustantimes.com/art-and-culture/crafted-in-clay-the-art-of-pottery-in-delhi/story-cPkr75qqfiz65Yr0nEg39N.html)**
+<hr>
+**8 August 2015**  
+Industry never came, partly because of the complex issue of land acquisition as well as the insurmountable populism of West Bengal’s politics. But existing houses and neighbourhoods continued to be destroyed because of the ethos created by “developers” – a euphemism, often, for a new breed of land sharks. This ethos dictated that houses on prime land needed to be bought up and immediately destroyed for the price of the land they stood on. So the houses were never put on the market, and their market value was never determined.  
+**Amit Chaudhuri - Calcutta's architecture is unique. Its destruction is a disaster for the city - [The Guardian](https://www.theguardian.com/cities/2015/jul/02/calcutta-architecture-heritage-destruction-city-campaign-amit-chaudhuri)**
+<hr>
