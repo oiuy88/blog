@@ -3,7 +3,7 @@ Rita Hasenkopf erkundet schon jahrelang, was in jeder Pflanze steckt. Ihre Schwi
 
 Das Mittelbare aber, das, wo man Fantasie entwickeln muss, um zu verstehen, wo man rumexperimentieren muss, das hat Hasenkopf sich über all die Jahre angeeignet. Einmal im Monat trifft sie sich mit anderen kräuterkundigen Frauen aus dem Schwarzwald. Sie tauschen sich aus, lernen voneinander, experimentieren mit Pasten, Salben, Likören und Essenzen, wohl wissend, dass sie der Pharmaindustrie ein Dorn im Auge sind. „Früher wurden die Hexen verbrannt, heute wird unser Wissen durch Vorschriften klein gehalten.“  
 **Waltraud Schwab - Jedes Kräutchen ein Weltwunder - [Die Taz](https://taz.de/Kraeuterwanderung-im-Schwarzwald/!5709371/) - [Archive](https://web.archive.org/web/20200919105654/https://taz.de/Kraeuterwanderung-im-Schwarzwald/!5709371/)**
-
+<hr>
 **3 October 2020**  
 In the year 2000, all I wanted, as a Black girl Radiohead fan, was to live with them out at these extremities. The woozy keyboard swirl and processed vocal gibberish of Everything in Its Right Place, the album’s opening track, announced the very opposite: all was about to be thrown thrillingly out of whack. The sublime Treefingers is a glimmering object that spins slowly around the universe; the spectacular plaintive sorrow of Motion Picture Soundtrack was an invitation to dive into a cinematic dreamscape of heartbreak. Why not live in these worlds, I thought, with the disaster of the US presidential election recount unfolding deep into the fall?
 
