@@ -738,9 +738,54 @@ Ce discours qu’on appelle depuis Aristote économie n’intègre pas sans diff
 **10 December 2015**  
 Dans les sociétés industrielles, le pouvoir portait essentiellement sur le contrôle des biens, des capitaux, des matériaux, des machines. Bref, sur le contrôle du monde de l’objectivité. Avec l’émergence des technologies de l’information et de la communication, il se passe quelque chose d’inouï : ce sont des technologies de construction et de transformation de la subjectivité qui permettent d’agir sur l’acteur humain lui-même. L’enjeu du pouvoir devient ainsi de contrôler, de transformer, de fabriquer les esprits. L’idée n’est pas neuve, évidemment. Nous avons connu, au XXe siècle, l’expérience du totalitarisme dont l’objectif était également le contrôle des esprits par la parole, l’image, la mise en scène ou le culte de la personnalité. Et par la répression de toute opposition. Je n’affirme évidemment pas que nous vivons tous aujourd’hui dans des sociétés totalitaires. Mais j’avance l’idée que le pouvoir devient total. […] L’après-guerre a été dominée par la mise à mort du « sujet », d’un côté par les structuralistes, de l’autre par les marxistes. Je veux le réhabiliter. Et brandir comme un drapeau la « subjectivation » qui est, pour chacun, la prise en charge du sujet en lui, le mouvement par lequel un individu se transforme en acteur social capable de promouvoir et de défendre les droits humains fondamentaux, universels, quand ceux-ci sont bafoués.  
 **Interview with Alain Touraine - [Télérama](https://www.telerama.fr/idees/alain-touraine-sociologue-les-nouvelles-technologies-nous-bouleversent-autant-que-la-vapeur-ou-l-electricite,132581.php)**
+<hr>
+**10 December 2015**  
+Uploading website content as a strangely old-fashioned form of labour – literally manual, with repetitive hand movements you might expect in a production line. (Ctl-c, Ctl-v, click. Ctl-c, Ctl-v, click). These clicks and taps amplifying content and transforming it into something seamless and inevitable. It’s nice to think of all these websites as handcrafted.
+<hr>
+**10 December 2015**  
+The problem that Sapphire and Steel have come to solve is, as ever, to do with time. At the service station, there is temporal bleed-through from earlier periods: images and figures from 1925 and 1948 keep appearing, so that, as Sapphire and Steel’s colleague Silver puts it ‘time just got mixed, jumbled up, together, making no sort of sense’. Anachronism, the slippage of discrete time periods into one another, was throughout the series the major symptom of time breaking down.
 
+(…) In this final assignment, the anachronism has led to stasis: time has stopped. The service station is in ‘a pocket, a vacuum’. There’s ‘still traffic, but it’s not going anywhere’: the sound of cars is locked into a looped drone. Silver says, ‘there is no time here, not any more’.
 
+(…) Hammond said that he had not necessarily intended the series to end there. He had thought that it would be rested, to return at some point in the future. There would be no return – at least, not on network television.
 
+(…) Eternally suspended, never to be freed, their plight – and indeed their provenance – never to be fully explained, Sapphire and Steel’s internment in this café from nowhere prophetic for a general condition: in which life continues, but time has somehow stopped.  
+**Mark Fisher - Ghosts of my Life - [The Quietus](https://thequietus.com/articles/13004-mark-fisher-ghosts-of-my-life-extract)**
+<hr>
+**8 December 2015**  
+![Techno-optimism](https://oiuy88.files.wordpress.com/2015/12/screen-shot-2015-12-07-at-18-33-35.png?w=620 "Techno-optimism")
+<hr>
+**11 November 2015**  
+![Bad design, Karlsruhe](https://oiuy88.files.wordpress.com/2020/10/capture113.png?w=620 "Bad design, Karlsruhe")
+**13 November 2015**  
+There are relations between department store and museum, and here the bazaar provides a link. The amassing of artworks in the museum brings them into communication with commodities, which - where they offer themselves en masse to the passerby - awake in him the notion that some part of this should fall to him as well.  
+**Walter Benjamin - The Arcades Project, L5,5
+<hr>
+**5 November 2015**  
+The result might seem counterintuitive. Indeed, Hewstone told me, other academic experts thought their conclusions were “bonkers”. But as a disciple of Tajfel, Hewstone had always recognised the centrality of group membership to identity. These days, his findings are widely accepted: for group prejudice to be eroded, group identity has to be maintained. In other words, contact itself is not enough.
+
+Positive contact between members of antagonistic groups will improve how members of these groups generally see each other only if the people involved are seen as representative of their group. For contact to work, one does not want to put individuals through some kind of identity blender, to produce a homogeneous group. The aim is that people can see other people precisely as “other” and then realise that other isn’t bad.  
+**David Edmonds - The integrated school that could teach a divided town to live together - [The Guardian](https://www.theguardian.com/news/2015/nov/05/integrated-school-waterford-academy-oldham)**
+<hr>
+**4 November 2015**  
+Modesty, thrift and restraint – the key bourgeois values – were to be encouraged, though recidivists would lapse into ‘a blaze of colour’. Philanthropic landlords with model estates, or paternalist industrialists like Cadbury at Bournville, where the gardens were generously supplied with the shrubs and flowers, were relentless in their rules and regulations, as were the enlightened municipal authorities that were then building the first council houses. On the Wythenshawe estate in Manchester ‘slum habits’, such as putting up a trellis for unruly sweet peas too close to the path, could land you in trouble. The lower orders soon learned to police themselves.  
+**Alison Light - Unruly Sweet Peas - [LRB](https://www.lrb.co.uk/the-paper/v36/n24/alison-light/unruly-sweet-peas)**
+<hr>
+**4 November 2015**  
+Middlesex Street, ‘Petticoat Lane’, is full of public housing, from interwar tenements to a remarkable mini-Barbican of walkways and towers. It’s a sudden plunge right into real London, and vies with Poplar for the sharpest meeting of rich and poor in Europe. These places were largely owned by the LCC, now Tower Hamlets, and hence are left to rot. The City’s own postwar housing projects, however, are still a revelation. It’s incredible at this distance to think that the City could have paid for Golden Lane, for instance, a place where evidently some of London’s working class manage to live well next to architects who are paying over the odds for the same flats. The Barbican, into which it imperceptibly fades along Goswell Lane, is a more complicated proposition, never public housing in the strict sense, although certainly not intended as the luxury enclave it is now. The Barbican, aside from the sheer pleasure of its Brutalist-Baroque grandeur, is mainly of use for deflecting every anti-modernist, anti-urban shibboleth going – a high density arrangement of towers and walkways, without an inch of ‘defensible space’, in beefy raw concrete, that is doing very well thank you (it’s also, like the City itself, a wonderful place to get yourself deliberately lost on a Sunday).  
+**Owen Hatherley - Urban Trawl: The City - [Urban Trawl](http://urbantrawl.blogspot.com/2012/01/urban-trawl-city.html)**
+<hr>
+**4 November 2015**  
+Joining the evangelists on these routes across Asia were military leaders, merchants and learned men. Modern Chinese words derived from Persian and Arabic, such as bosi, meaning a precious object (literally “from Persia”), are evidence of the booming markets and wealth in the Muslim world in the early Middle Ages, as vast tax revenues flowed towards Baghdad and the great cities of Mesopotamia and central Asia. Scholars were drawn by systems of patronage that gathered the best minds to work on pure and applied mathematics, science, optics and medicine, while great craftsmen found an insatiable demand for their wares. A place such as Rayy, not far from modern Tehran, was so glorious as to be considered “the bridegroom of the earth”. Cities, strung like pearls across the spine of Asia, flourished long after the discovery of the Americas: the moment usually presumed to have marked the true start of the ascent of the West.  
+**Peter Frankopan - The Silk Roads rise again - [New Statesman](https://www.newstatesman.com/politics/economy/2015/10/silk-roads-rise-again)**
+<hr>
+**30 October 2015**  
+Calvert drew most of the pictograms in the friendly, curvaceous style of Transport. Many of her illustrations were inspired by aspects of her own life. The cow featured in the triangular sign warning drivers to watch out for farm animals on the road was based on Patience, a cow on her relatives’ Warwickshire farm. Eager to make the school children crossing sign more accessible, she replaced the image of a boy in a school cap leading a little girl, with one of a girl – modelled on a photograph of herself as a child – with a younger boy. Calvert described the old sign as being: “quite archaic, almost like an illustration from Enid Blyton… I wanted to make it more inclusive because comprehensives were starting up.”  
+**Jock Kinneir and Margaret Calvert - [Design Museum](https://designmuseum.org/designers/jock-kinneir-and-margaret-calvert)**
+<hr>
+**29 October 2015**  
+![Poor Alfie](https://oiuy88.files.wordpress.com/2020/10/img_4218.jpg?w=620 "Poor Alfie")
+<hr>
 
 
 https://oiuy88.wordpress.com/page/20/ 
