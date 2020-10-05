@@ -964,7 +964,7 @@ Further, in India, power is what is called a “concurrent subject.” What that
 <hr>
 **19 April 2015**  
 Yet the same mayoralty has produced a sober document called the London Housing Design Guide, which calmly sets out some basic standards for civilised homes – minimum ceiling heights and room sizes; balconies you can actually use – which, as homes tend to last a long time once built, is an important gift to the future. It was pushed through despite opposition from developers, and with the help of mayorally supported pilot projects such as the St Andrews development in east London, and has led to an outbreak of decent, dignified housing where formerly there was junk. Some of its recommendations are now being applied to housing across the country.  
-**Rowan Moore - What will Boris Johnson’s legacy to London be? - [The Guardian](https://www.theguardian.com/artanddesign/2015/apr/19/what-will-boris-johnson-legacy-london)**
+**Rowan Moore - What will Boris Johnson’s legacy to London be? - [The Observer](https://www.theguardian.com/artanddesign/2015/apr/19/what-will-boris-johnson-legacy-london)**
 <hr>
 **10 April 2015**  
 At first blush, “no” does not appear to be the kind of word whose meaning you can monkey with. For one thing, there is its length. At just two letters and one syllable, it lacks the pliable properties of longer words. You can’t stuff stuff inside it. (You can say “unfreakingbelievable,” but you cannot say “nfreakingo.”) You can’t mangle it, à la “misunderestimate” or (the finest example I’ve heard lately) “haphazardous.” On the contrary, it is so simple and self-contained that it is a holophrasm, a word that can serve as a complete sentence. (Holophrasms aren’t common in English, but any verb in command form can be holophrastic—“Go,” “Help,” “Run”—and babies just learning to talk use single words to express complex ideas all the time, albeit without regard to grammar: “Ball,” “Up,” “Want.”)
@@ -1136,14 +1136,14 @@ There’s a historical sense, too, in which “culture” is a polemical word. I
 <hr>
 **6 January 2015**  
 If, almost unwittingly—for she wasn’t good at words, couldn’t spell and seldom read books—she replaced an “Oh” with an “Ah”, or paused minutely too long, upsetting the rhythm of his music, she would hear his [Beckett’s] murmured “Oh Lord!” from the stalls, and see his head fall to his hands.  
-**Billie Whitelaw obituary - [Economist](https://www.economist.com/obituary/2014/12/30/her-masters-voice)**
+**Billie Whitelaw obituary - [The Economist](https://www.economist.com/obituary/2014/12/30/her-masters-voice)**
 <hr>
 **5 January 2015**  
 Am Eingang [des Anti-Kriegs-Museums] stand ein Schild: “Eintritt für Menschen 20 Pfennig, für Soldaten frei”. Die Reichswehr fühlte sich beleidigt. Ernst Friedrich kam ins Gefängnis. Er hatte bald eine Stammzelle, in der er Strafen für derlei Delikte absaß.
 
 Am Museumseingang hingen zwei Lampen, an einer Lampe ein deutscher Stahlhelm mit “Nie wieder”, an der anderen ein französischer mit “Plus jamais”. Die Stahlhelme waren umgedreht und dienten als Blumenampeln.
 
-Es kam 1933. SA marschierte mit ruhig festem Schritt vor Ernst Friedrichs Museum und montierte von der Aufschrift das “Anti” ab. Nun hieß es “Kriegsmuseum”. Auf höheren Befehl machte man “Erstes Berliner Revolutionsmuseum der SA-Standarte 6, Berlin” daraus. Am 28. Februar wurde Ernst Friedrich verhaftet und ins Zuchthaus gesteckt. 
+Es kam 1933. SA marschierte mit ruhig festem Schritt vor Ernst Friedrichs Museum und montierte von der Aufschrift das “Anti” ab. Nun hieß es “Kriegsmuseum”. Auf höheren Befehl machte man “Erstes Berliner Revolutionsmuseum der SA-Standarte 6, Berlin” daraus. Am 28. Februar wurde Ernst Friedrich verhaftet und ins Zuchthaus gesteckt.  
 **Selbst für Chinesen, 1950 - [Der Spiegel](https://www.spiegel.de/spiegel/print/d-44447612.html)**
 <hr>
 **5 January 2015**  
@@ -1167,7 +1167,7 @@ The islands [the Laccadives and Maldives] are all planted with coconut palms, wh
 **Mas’udi - The Meadows of Gold, 915**  
 <hr>
 **5 Januarty 2015**  
-![Clément Janequin - Le Chant des Oiseaux](https://oiuy88.files.wordpress.com/2020/10/capture115.png?w=620 "Chant des Oiseaux")  
+![Clément Janequin - Le Chant des Oiseaux](https://oiuy88.files.wordpress.com/2020/10/capture115.png?w=640 "Chant des Oiseaux")  
 **Clément Janequin - Le Chant des Oiseaux - Maxouel et Zviane / [YouTube](https://www.youtube.com/watch?v=XoTfSQOqOis)**  
 Reveillez vous, coeurs endormis  
 Le dieu d’amour vous sonne.  
@@ -1272,7 +1272,7 @@ In one sense, then, the real is connected to trauma, and in another sense to mat
 <hr>
 **9 December 2014**  
 The crisis in journalism is a business crisis, and it’s been going on for twenty years; the outcome remains far from obvious. Writers and editors at magazines and newspapers live with a perpetual sense of foreboding, which leads to plummeting self-confidence in their own work and a tendency to overestimate the new digital enterprises, or the new digitally rich owners of the old enterprises. It’s easy to feel that the very task of reporting and writing in depth, at length, and in complex detail is somehow to blame for their problems. It isn’t—but, faced with a deeply uncertain future, they become, in a phrase from Robert Stone’s novel “A Flag for Sunrise,” the mouse so scared it went to the cat for love.”  
-**George Packer - The real crisis of journalism - [New Yorker](https://www.newyorker.com/news/daily-comment/real-crisis-journalism-new-republic)**
+**George Packer - The real crisis of journalism - [The New Yorker](https://www.newyorker.com/news/daily-comment/real-crisis-journalism-new-republic)**
 <hr>
 **8 December 2014**  
 Blogging, as “casual” theory production, is much closer to this contemporary process of taking and transmitting photographs than, let’s say, writing an academic essay. But still it is not the same. The only thing that would come really close would be permanently recording oneself and others with a Dictaphone and immediately uploading it onto YouTube—something that, strangely, we are not normally doing, as if what we said to each other at that lovely evening with friends was less important, and easier to remember, than how we were dressed.”  
