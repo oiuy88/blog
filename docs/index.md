@@ -206,14 +206,14 @@ But caution about the potential of our cities and suburbs as wildlife habitat is
 **Richard Conniff - Habitat on the Edges: Making room for wildlife in an urbanized world - [Yale Environment 360](https://e360.yale.edu/features/habitat-on-the-edges-making-room-for-wildlife-in-an-urbanized-world)**
 <hr>
 **3 December 2017**  
-![Near Euston](https://oiuy88.files.wordpress.com/2017/12/2017-12-03-142011-00001.gif?w=620&h=349 "Near Euston")
+![Near Euston](https://oiuy88.files.wordpress.com/2017/12/2017-12-03-142011-00001.gif?w=640 "Near Euston")
 <hr>
 **30 November 2017**  
 Small grains are “cool season” crops that are planted in the spring and provide coverage for the soil in the wet months, reducing erosion and soaking up excess nutrients that might otherwise end up in waterways. And since they’re harvested in July, farmers can then plant warm-season cover crops in the summer that develop robust root systems. This helps the soil function as a vital living ecosystem that retains more water, stores more carbon, and requires less fertilizer to grow food.  
 **Twilight Greenaway - Where corn is king, the stirrings of a renaissance in small grains - [Yale Environment 360](http://e360.yale.edu/features/where-corn-is-king-the-stirrings-of-a-small-grain-renaissance)**
 <hr>
 **29 November 2017**  
-![At work](https://oiuy88.files.wordpress.com/2017/10/2017-10-26-171630-0000.gif?w=620&h=496 "At work")
+![At work](https://oiuy88.files.wordpress.com/2017/10/2017-10-26-171630-0000.gif?w=640 "At work")
 <hr>
 **28 November 2017**  
 <span id="communication">Communication  
@@ -259,7 +259,7 @@ In Tucson, Arizona, for example, house finches have developed longer and wider b
 **Urban-based evolution: Species are rapidly adapting to city habitats - [Yale Environment 360](https://e360.yale.edu/digest/urban-based-evolution-species-are-rapidly-adapting-to-city-habitats)**
 <hr>
 **26 October 2017**  
-![Nervous jumper](https://oiuy88.files.wordpress.com/2017/10/2017-10-24-120444-0000.gif?w=620&h=496 "Nervous jumper")
+![Nervous jumper](https://oiuy88.files.wordpress.com/2017/10/2017-10-24-120444-0000.gif?w=640 "Nervous jumper")
 <hr>
 **15 October 2017**  
 A cynical view of Crowdtap is that it’s just another form of social media marketing — people being paid to tell their friends to buy things. But then you realize that these people don’t have large social media followings (in fact, Crowdtap users I interviewed said they create throwaway social media accounts to use exclusively for Crowdtap). And sharing content on social media isn’t even required — the default option is to share, but you get your points either way. Crowdtap passes members’ responses on to brands, but otherwise nobody is listening to what they say. No one is responding. There’s very little about this that might be called social. Imagine someone wandering alone in a giant desert, shouting “I love Big Macs!” into the sky. That’s Crowdtap.  
@@ -277,7 +277,7 @@ Written by WILLIAM B H from Cambridge 02-Jan-2011
 267 of 343 people found this useful
 <hr>
 **10 October 2017**  
-![The cycle home](https://oiuy88.files.wordpress.com/2017/10/image1.jpg?w=620&h=465 "The cycle home")
+![The cycle home](https://oiuy88.files.wordpress.com/2017/10/image1.jpg?w=640 "The cycle home")
 <hr>
 **9 October 2017**  
 Winter of discontent
@@ -383,7 +383,7 @@ Pour Jean-Laurent Cassely, cette véritable «anomalie sociologique» trouve son
 **Elena Scappaticci - Quand les surdiplômés déclarent la guerre aux «jobs à la con » - [Le Figaro](https://www.lefigaro.fr/entrepreneur/2017/05/29/09007-20170529ARTFIG00072-quand-les-surdiplomes-declarent-la-guerre-aux-jobs-a-la-con.php)**
 <hr>
 **24 May 2017**   
-![Monreale](https://oiuy88.files.wordpress.com/2017/05/screen-shot-2017-05-24-at-15-16-57.png?w=620&h=293 "Monreale")  
+![Monreale](https://oiuy88.files.wordpress.com/2017/05/screen-shot-2017-05-24-at-15-16-57.png?w=640 "Monreale")  
 **Monreale Cathedral - [Wikimedia](https://upload.wikimedia.org/wikipedia/commons/0/0a/Sicilia_Monreale4_tango7174.jpg)**
 <hr>
 **22 May 2017**  
@@ -519,7 +519,7 @@ What cunts they all were
 **Hera Lindsay Bird - Monica - [Spinoff](https://thespinoff.co.nz/featured/13-05-2016/the-friday-poem-monica-by-hera-lindsay-bird/)**
 <hr>
 **31 August 2016**  
-![Portrait](https://oiuy88.files.wordpress.com/2016/08/screen-shot-2016-08-23-at-20-57-32.png?w=620&h=357 "Portrait")
+![Portrait](https://oiuy88.files.wordpress.com/2016/08/screen-shot-2016-08-23-at-20-57-32.png?w=640 "Portrait")
 <hr>
 **5 August 2016**  
 WH: Tell me about Pokémon Go. What is happening on Pokémon Go?  
@@ -556,7 +556,7 @@ This corporate identity theft benefits from the anonymous nature of those offsho
 **About the Loophole for All project - [Loophole for All](https://loophole4all.com/about.php)**
 <hr>
 **28 July 2016**  
-![First thought after Brexit](https://oiuy88.files.wordpress.com/2016/07/screen-shot-2016-07-08-at-16-47-25.png?w=620 "First thought after Brexit")
+![First thought after Brexit](https://oiuy88.files.wordpress.com/2016/07/screen-shot-2016-07-08-at-16-47-25.png?w=640 "First thought after Brexit")
 <hr>
 **4 July 2016**  
 Society is built on interfaces. You take a complex thing, put it inside a sturdy box, and put some simple buttons on the box so that people can use the thing inside. The box makes it easier to use and prevents people from breaking it. For example, you can take the machinery of a clock, put it in a box, and put two hands on the outside along with a knob for winding it. Take all the machinery of a car, hide it behind a dashboard, and give people two pedals and wheel. Take all the circuits of a computer, put them in a box, and give people a monitor and a keyboard.
@@ -567,7 +567,7 @@ Toyota uses millions of kilograms of steel every year. Does the CEO of Toyota kn
 **The interface series - [Reddit](https://www.reddit.com/r/9M9H9E9/wiki/narrative)**
 <hr>
 **3 July 2016**  
-![English as she is spoke](https://oiuy88.files.wordpress.com/2016/07/screen-shot-2016-07-03-at-11-00-33.png?w=620 "English as she is spoke")
+![English as she is spoke](https://oiuy88.files.wordpress.com/2016/07/screen-shot-2016-07-03-at-11-00-33.png?w=320 "English as she is spoke")
 <hr>
 **21 April 2016**  
 Once thought to be the most densely populated place on Earth, with 50,000 people crammed into only a few blocks, these fascinating pictures give a rare insight into the lives of those who lived Kowloon Walled City.
@@ -587,14 +587,14 @@ How do we know when a photographer caters to life and not to some previous preju
 <hr>
 **24 March 2016**  
 ![Deptford](
-https://oiuy88.files.wordpress.com/2016/03/screen-shot-2016-03-13-at-12-05-14.png?w=620 "Deptford")
+https://oiuy88.files.wordpress.com/2016/03/screen-shot-2016-03-13-at-12-05-14.png?w=640 "Deptford")
 <hr>
 **13 March 2016**  
 For black Gen-Xers like myself, who witnessed past scenes of black torture caught on camera, like the beating of motorist Rodney King by LAPD officers back in 1991, this is a moment in which the truth of black death and incarceration feels both familiar and utterly new. We are more than accustomed to managing our fury and incredulity about the insult of racial violence and its casual, chronic erasure from the public conversation. What is harder to process is seeing the faces and hearing the stories of the dead in great detail from surviving family members grappling with unspeakable pain. We who watch these daily tragedies unfold on our phones and laptops and cable news watch from afar but feel the sad heaviness of what it means to experience one’s blackness as precarious and unprotected, as eviscerated of its citizenship. To live like that is to walk through the world always slightly numb and sceptical of what lies ahead.  
 **Daphne A Brooks - How #BlackLivesMatter started a musical revolution - [The Guardian](https://www.theguardian.com/us-news/2016/mar/13/black-lives-matter-beyonce-kendrick-lamar-protest)**
 <hr>
 **10 March 2016**  
-![A shop in Indonesia](https://oiuy88.files.wordpress.com/2016/03/screen-shot-2016-03-08-at-11-35-26.png?w=620 "A shop in Indonesia")
+![A shop in Indonesia](https://oiuy88.files.wordpress.com/2016/03/screen-shot-2016-03-08-at-11-35-26.png?w=640 "A shop in Indonesia")
 <hr>
 **8 March 2016**  
 14. Depuis quand? s’écria le troisième. Est-ce que je sais moi! Le fait est que je pratique la chose. Vous allez voir!
@@ -705,7 +705,7 @@ It’s interesting because her books do seem very readable in Italian. There are
 **Interview with Ann Goldstein - [Guernica](https://www.guernicamag.com/the-face-of-ferrante/)**
 <hr>
 **18 January 2016**  
-![Paris in 1909](https://oiuy88.files.wordpress.com/2016/01/screen-shot-2016-01-18-at-17-23-21.png?w=620 "Paris in 1909")  
+![Paris in 1909](https://oiuy88.files.wordpress.com/2016/01/screen-shot-2016-01-18-at-17-23-21.png?w=640 "Paris in 1909")  
 **Ailsa Ross - These rare color photos of Paris were shot 100 years ago, and they’re amazing - [Matador Network](https://matadornetwork.com/notebook/rare-color-photos-paris-shot-100-years-ago-theyre-amazing/)**
 <hr>
 **18 January 2016**  
@@ -713,7 +713,7 @@ Lewis was 27 at the time. He looked around at colleagues at the bank who were 37
 **Interview with Michael Lewis - [The Guardian](https://www.theguardian.com/film/2016/jan/17/michael-lewis-big-short-wall-street-crash-book-film)**
 <hr>
 **10 January 2016**  
-![Paris](https://oiuy88.files.wordpress.com/2016/01/screen-shot-2016-01-09-at-11-41-52.png?w=620 "Paris")
+![Paris](https://oiuy88.files.wordpress.com/2016/01/screen-shot-2016-01-09-at-11-41-52.png?w=640 "Paris")
 <hr>
 **10 January 2016**  
 In writing, habit seems to be a much stronger force than either willpower or inspiration. Consequently there must be some little quality of fierceness until the habit pattern of a certain number of words is established. There is no possibility, in me at least, of saying, “I’ll do it if I feel like it.” One never feels like awaking day after day. In fact, given the smallest excuse, one will not work at all. The rest is nonsense. Perhaps there are people who can work that way, but I cannot. I must get my words down every day whether they are any good or not.  
@@ -761,10 +761,10 @@ The problem that Sapphire and Steel have come to solve is, as ever, to do with t
 **Mark Fisher - Ghosts of my Life - [The Quietus](https://thequietus.com/articles/13004-mark-fisher-ghosts-of-my-life-extract)**
 <hr>
 **8 December 2015**  
-![Techno-optimism](https://oiuy88.files.wordpress.com/2015/12/screen-shot-2015-12-07-at-18-33-35.png?w=620 "Techno-optimism")
+![Techno-optimism](https://oiuy88.files.wordpress.com/2015/12/screen-shot-2015-12-07-at-18-33-35.png?w=640 "Techno-optimism")
 <hr>
 **11 November 2015**  
-![Bad design, Karlsruhe](https://oiuy88.files.wordpress.com/2020/10/capture113.png?w=620 "Bad design, Karlsruhe")
+![Bad design, Karlsruhe](https://oiuy88.files.wordpress.com/2020/10/capture113.png?w=640 "Bad design, Karlsruhe")
 <hr>
 **13 November 2015**  
 There are relations between department store and museum, and here the bazaar provides a link. The amassing of artworks in the museum brings them into communication with commodities, which - where they offer themselves en masse to the passerby - awake in him the notion that some part of this should fall to him as well.  
@@ -793,7 +793,7 @@ Calvert drew most of the pictograms in the friendly, curvaceous style of Transpo
 **Jock Kinneir and Margaret Calvert - [Design Museum](https://designmuseum.org/designers/jock-kinneir-and-margaret-calvert)**
 <hr>
 **29 October 2015**  
-![Poor Alfie](https://oiuy88.files.wordpress.com/2020/10/img_4218.jpg?w=620 "Poor Alfie")
+![Poor Alfie](https://oiuy88.files.wordpress.com/2020/10/img_4218.jpg?w=640 "Poor Alfie")
 <hr>
 **5 October 2015**  
 This is not to say that communities of color have not articulated a desire for and developed noteworthy urban agriculture projects. Often under the banner of “food justice,” activists attempt to use sustainable local food systems not only to create environmental sustainability and community, but to address racial and economic inequalities (Alkon and Agyeman 2011, Gottlieb and Joshi 2011). Detroit’s D-Town Farms and the Detroit Black Community Food Security Network, for example, are noteworthy for their longstanding community leadership and their emphasis on creating economic and food security in the black community (White 2010).  
@@ -1066,8 +1066,9 @@ I was working on a series of figures, in various media (copperplate, charcoal, s
 **Interview with Iain Hamilton Grant interview - [After Nature](http://afterxnature.blogspot.com/2013/04/iain-hamilton-grant-interview-with.html)**
 <hr>
 **14 January 2015**  
-![Potato 1](https://oiuy88.files.wordpress.com/2015/01/screen-shot-2015-01-14-at-14-47-17.png?w=620 "potato")  
-![Potato 2](https://oiuy88.files.wordpress.com/2015/01/screen-shot-2015-01-14-at-14-58-33.png?w=620 "potato")  
+![Potato 1](https://oiuy88.files.wordpress.com/2015/01/screen-shot-2015-01-14-at-14-47-17.png?w=640 "potato")
+
+![Potato 2](https://oiuy88.files.wordpress.com/2015/01/screen-shot-2015-01-14-at-14-58-33.png?w=640 "potato")  
 **John Gerard - The herball, or, Generall historie of plantes,1597 edition - [Botanicus](http://www.botanicus.org/title/b12080317)**
 <hr>
 **14 January 2015**  
@@ -1091,7 +1092,7 @@ The struggle raging today will likely produce no victor; it will leave probably 
 **Einstein and Nicolai - Manifesto to the Europeans, 1914 - [Eutopia](http://www.eutopiamagazine.eu/en/albert-einstein/columns/manifesto-europeans) (broken link)**
 <hr>
 **11 January 2015**  
-![Turkey](https://oiuy88.files.wordpress.com/2015/01/img_0063-1.png?w=620 "Turkey")  
+![Turkey](https://oiuy88.files.wordpress.com/2015/01/img_0063-1.png?w=640 "Turkey")  
 **Ustad Mansur - [Wikipedia](https://en.wikipedia.org/wiki/Ustad_Mansur)**
 <hr>
 **11 January 2015**  
@@ -1166,7 +1167,7 @@ He is said to have been crushed to death under the weight of his own tomes.
 The islands [the Laccadives and Maldives] are all planted with coconut palms, which closely resemble date palms but do not bear dates. Many scholars who have specialized in the growth of animals and the grafting of trees claim that the cocnut palm is nothing more than the palm called muql, which under the influence of the soil of India, where it was transplanted, was transformed into the coconut palm.  
 **Mas’udi - The Meadows of Gold, 915**  
 <hr>
-**5 Januarty 2015**  
+**5 January 2015**  
 ![Clément Janequin - Le Chant des Oiseaux](https://oiuy88.files.wordpress.com/2020/10/capture115.png?w=640 "Chant des Oiseaux")  
 **Clément Janequin - Le Chant des Oiseaux - Maxouel et Zviane / [YouTube](https://www.youtube.com/watch?v=XoTfSQOqOis)**  
 Reveillez vous, coeurs endormis  
