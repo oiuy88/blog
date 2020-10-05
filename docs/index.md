@@ -221,8 +221,8 @@ Small grains are “cool season” crops that are planted in the spring and prov
 **29 November 2017**  
 ![At work](https://oiuy88.files.wordpress.com/2017/10/2017-10-26-171630-0000.gif?w=640 "At work")
 <hr>
-**28 November 2017**  
-<span id="communication">Communication  
+<span id="communication"> **28 November 2017**  
+Communication
 
 “It’s a matter of how we engage on the social front there.”
 
@@ -527,7 +527,7 @@ What cunts they all were
 **31 August 2016**  
 ![Portrait](https://oiuy88.files.wordpress.com/2016/08/screen-shot-2016-08-23-at-20-57-32.png?w=640 "Portrait")
 <hr>
-**5 August 2016**  
+<span id="herzog"> **5 August 2016**  
 WH: Tell me about Pokémon Go. What is happening on Pokémon Go?  
 TV: It’s basically the first mainstream augmented reality program. It’s a game where the entire world is mapped and you walk around with the GPS on your phone. You walk around in the real world and can catch these little monsters and collect them. And everybody is playing it.  
 WH: Does it tell you you’re here at San Vicente, close to Sunset Boulevard?  
