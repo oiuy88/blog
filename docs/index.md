@@ -636,7 +636,7 @@ Almost everyone I know is busy. They feel anxious and guilty when they aren’t 
 Identified as a submerged microcontinent by a team of scientists in 1999, the Kerguelen Plateau was built up by eruptions from the hotspot over the next 20 million years before emerging above sea level. A rather quick event in geologic time, the sudden eruption of the plateau may have contributed to a global catastrophe at that time in the form of a global oceanic anoxic event, in which the earth’s oceans are deprived of oxygen and marine life dies off en masse; interestingly, much of the world’s petroleum resources credit their origins to the massive marine extinctions of this time period.
     
 The plateau existed above water as a microcontinent three different times over a period of 80 million years before it went underwater for a final time about 20 million years ago; a combination of a change in characteristics in the mantle plume which fed Kerguelen’s construction, sea level change, and the inevitable process of erosion (the same reason the northwesternmost Hawaiian Islands are so much smaller than the southeasternmost islands; they’re older). Floor samples indicate that the microcontinent was covered by a coniferous forest.   
-**The Kerguelen Plateau: A sunken microcontinent - [Basement Geographer](https://basementgeographer.com/kerguelen-plateau-a-sunken-microcontinent/) (link broken)**
+**The Kerguelen Plateau: A sunken microcontinent - [Basement Geographer](https://basementgeographer.com/kerguelen-plateau-a-sunken-microcontinent/) (broken link) - [Archive](https://web.archive.org/web/20170204181010/https://basementgeographer.com/kerguelen-plateau-a-sunken-microcontinent/)**
 <hr>
 **22 February 2016**  
 A recent infographic in The Economist revealed that in the 140 million hours humanity spent watching “Gangnam Style” on YouTube two billion times, we could have built at least four more (desperately needed) pyramids at Giza. Endless articles pose the question of why we procrastinate, what’s going wrong in the brain, how to overcome it, and the fascinating irrationality of it all.
@@ -656,7 +656,7 @@ Affirmer que la proximité géographique est la seule façon qu’ont les humain
 <hr>
 **13 February 2016**  
 There are addendums sometimes, add-ons like “I’m happy to see POC characters if the plot calls for it” or “why put in a black dude in the cast just because?” Understand what is being said there: the story that is universal is white. The default is always white. The POC character only makes it in there “when the role calls for it”. Let that sink in for a moment. Our presence in popular culture (and in non-stereotypical roles) must always be justified, but whiteness exists as the basic template. Our place at the table has to be earned. And ain’t that a kick in the teeth?  
-**Bim Adewunmi - What we talk about when we talk about tokenism - [Yoruba Girl Dancing](http://www.yorubagirldancing.com/2012/10/10/what-we-talk-about-when-we-talk-about-tokenism/) (link broken)**
+**Bim Adewunmi - What we talk about when we talk about tokenism - [Yoruba Girl Dancing](http://www.yorubagirldancing.com/2012/10/10/what-we-talk-about-when-we-talk-about-tokenism/) (broken link) - [Archive](https://web.archive.org/web/20141011030551/http://www.yorubagirldancing.com/2012/10/10/what-we-talk-about-when-we-talk-about-tokenism)**
 <hr>
 **13 February 2016**  
 The longer I stay here the easier it is to understand why North Americans of my generation, raised on positive reinforcement and dreams of creative fulfillment, are especially drawn to Berlin. This place allows you to escape the harsh realities of adulthood, to avoid confronting the limits of your specialness. In New York, most people I knew were working 12-hour days at bad jobs not only because they needed to make rent, but because they wanted to fit in. Here, you’re free to describe yourself as a “performance artist” or a “graphic designer,” even if you spend your entire day surfing the Internet, because, for the most part, you’re not expected to do anything at all. This aspect of the Berlin lifestyle is sometimes referred to in magazines trend pieces as “downshifting.” A less charitable German would call it “sozialverträgliche Faulheit.”
@@ -799,7 +799,7 @@ And where rent control is relatively weak, it is just one factor affecting the s
 <hr>
 **5 October 2015**  
 As a raw material that, while present, cannot be seen, neon is appropriate to Creed’s work as a whole for it entertains, as one critic has put it, a ‘paradoxical desire to produce both something and nothing’, as seen in his inflated balloon installations, which fill rooms with air.  
-**Martin Creed - Everything is going to be alright - [Tate](https://www.tate.org.ukart/artworks/creed-work-no-203-everything-is-going-to-be-alright-t12799) (broken link)**
+**Martin Creed - Everything is going to be alright - [Tate](https://www.tate.org.uk/art/artworks/creed-work-no-203-everything-is-going-to-be-alright-t12799) - [Archive](https://web.archive.org/web/20200604103757/https://www.tate.org.uk/art/artworks/creed-work-no-203-everything-is-going-to-be-alright-t12799)**
 <hr>
 **2 October 2015**  
 Cette violence symbolique qui émerge de ce langage purement technique, très anglo-saxon, renvoie à un pragmatisme qu’il n’est pas question de remettre en question. Je l’ai très mal vécu. Cette langue venimeuse de l’expertise empêche la critique par sa puissance d’intimidation incroyable et elle vous oblige à croire que le réel n’est pas négociable. Elle m’a mis la trouille de me tromper.  
@@ -1072,7 +1072,7 @@ Cette racine, de quelque maniere qu’on l’apprête, est fade & farineuse. Ell
 Je suis triste, mais je ne lisais pas Charlie Hebdo. Je n’aimais pas leur boulot, ni leurs caricatures, même si elles ne m’empêchaient pas de dormir. Je ne peux donc pas “être Charlie” comme le clament certains de mes proches et manifester aux côtés de gens qui me considèrent comme leur ennemi. Ils me détestent et contribueront dans les prochaines semaines à faire croire que je suis un danger potentiel.
 
 Je ne veux pas faire semblant. Après la manifestation, ils me regarderont comme Ben Laden. Ce que je dis peut être mal interprété parce que je suis musulman. Si un athée dit la même chose, ça n’aurait pas la même portée car lui, on ne lui demande pas de montrer patte blanche. Et pourtant, tous les athées n’iront pas manifester, peut-être pour les mêmes raisons que moi. »  
-**Interview with Ramses Kefi - Aprés Charlie Hebdo - [Rue 89](http://www.rue89.nouvelobs.com/2015/01/09/apres-charlie-hebdo-quoiquils-fassent-les-musulmans-sont-bloques-257002) (broken link)**
+**Interview with Ramses Kefi - Aprés Charlie Hebdo - [Rue 89](http://www.rue89.nouvelobs.com/2015/01/09/apres-charlie-hebdo-quoiquils-fassent-les-musulmans-sont-bloques-257002) (broken link) - [Archive](https://web.archive.org/web/20151016083121/http://rue89.nouvelobs.com/2015/01/09/apres-charlie-hebdo-quoiquils-fassent-les-musulmans-sont-bloques-257002)**
 <hr>
 **12 January 2015**  
 Through technology the world has become smaller; the states of the large peninsula of Europe appear today as close to each other as the cities of each small Mediterranean peninsula appeared in ancient times.
@@ -1086,7 +1086,7 @@ The struggle raging today will likely produce no victor; it will leave probably 
 <hr>
 **11 January 2015**  
 ![Turkey](https://oiuy88.files.wordpress.com/2015/01/img_0063-1.png?w=620 "Turkey")  
-Ustad Mansur - [Wikipedia](https://en.wikipedia.org/wiki/Ustad_Mansur)
+**Ustad Mansur - [Wikipedia](https://en.wikipedia.org/wiki/Ustad_Mansur)**
 <hr>
 **11 January 2015**  
 Q: What would a just prison system look like to you?  
@@ -1158,7 +1158,7 @@ He is said to have been crushed to death under the weight of his own tomes.
 <hr>
 **5 January 2015**  
 The islands [the Laccadives and Maldives] are all planted with coconut palms, which closely resemble date palms but do not bear dates. Many scholars who have specialized in the growth of animals and the grafting of trees claim that the cocnut palm is nothing more than the palm called muql, which under the influence of the soil of India, where it was transplanted, was transformed into the coconut palm.  
-**Mas’udi, The Meadows of Gold, 915**  
+**Mas’udi - The Meadows of Gold, 915**  
 <hr>
 **5 Januarty 2015**  
 ![Clément Janequin - Le Chant des Oiseaux](https://oiuy88.files.wordpress.com/2020/10/capture115.png?w=620 "Chant des Oiseaux")  
@@ -1225,6 +1225,7 @@ Cette nouvelle organisation du savoir trouva place dans le livre parce qu’il n
 
 Comme aime à l’expliquer le chercheur suisse Frédéric Kaplan, que l’encyclopédie soit un livre est un accident de l’Histoire, l’encyclopédie a toujours excédé le livre, elle était coincée dans le livre, qui en faisait un objet un peu absurde. Des énormes volumes, des index compliqués à manier, et surtout une caducité très rapide de nombreux articles qui nécessitaient des volumes de réactualisation rendant encore plus compliqué le maniement. Puis vint le Web.  
 **Xavier de La Porte - Universalis dépose le bilan - [Nouvelle Obs](https://www.nouvelobs.com/rue89/rue89-rue89-culture/20141122.RUE6720/universalis-depose-le-bilan-la-fin-d-un-accident-de-l-histoire.html)**
+<hr>
 **18 December 2014**  
 What is clearer to me, however, is that we have projected the ironies and insecurities and indeterminacies of Postmodernism back onto Romanticism; we have reinvented the Romantics into our own image (which, incidentally, is the other side of the “anxiety of influence”–I mean absorption, assimilation).
 
@@ -1237,7 +1238,7 @@ Certain topics or problems or figures, however, do run from Romanticism, through
 (…) Q: Indulge me in a Gedankenexperiment: suppose, if you will, that we lived in a culture where any literary-critical act, spoken or written, were taboo–the equivalent to, say, publicly discussing in detail one’s sexual preferences or experiences. What would such a culture be like? Would a kind of underground criticism emerge? Would the culture be diminished by the absence of public voices of criticism?
 
 IH: A Gedankenexperiment deserves another. We would get what I call Angelic Criticism, angelic reading of texts: total identification with texts, in silence. Or, if you wish, [Pierre] Menardian Criticism: rewriting the text in identical words. It would be better, wouldn’t it, than the class that begins every “discussion” with, “Now, what’s wrong with this book?”  
-**Interview with Ihab Hassan - [Ihab Hassan](www.ihabhassan.com/cioffi_interview_ihab_hassan.htm) (broken link)**
+**Interview with Ihab Hassan - [Ihab Hassan](www.ihabhassan.com/cioffi_interview_ihab_hassan.htm) (broken link) - [Archive](https://web.archive.org/web/20161123225623/http://www.ihabhassan.com/cioffi_interview_ihab_hassan.htm)**
 <hr>
 **18 December 2014**  
 Allan Sekula, who had grown up in the Los Angeles harbour town of San Pedro, was learning that the maritime world, far from being a realm of pleasure cruises and play, was riven by struggle and class conflict. Since then much of his extraordinary body of experimental work has been devoted to chronicling the social, economic and political dynamics of life on the oceans. His latest exercise in hydropoetics, a cine-essay entitled The Forgotten Space that he co-directed with Noël Burch, uses the statistic that 90% of cargoes today are carried by ship as its cue to develop a wide-ranging thesis about containerisation, globalisation and invisible labour.
@@ -1278,12 +1279,9 @@ One of the advantages of living in Europe is that I get birthday greetings from 
 
 And that would have been to speak of the constitution of all our roots – the Greek-Roman, the Judaic and the Christian. In our past, we have both Venus and the crucifix, the Bible and Nordic mythology, which we remember with Christmas trees, or with the many festivals of St Lucy, St Nicolas and Santa Claus. Europe is a continent that was able to fuse many identities, and yet not confuse them.
 
-That is precisely how I see its future. As for religion: be careful. Many people who no longer go to church end up falling prey to supersitition. And many who are non-practising still carry around a little saint card with a picture of Padre Pio in their wallets! […]
+That is precisely how I see its future. As for religion: be careful. Many people who no longer go to church end up falling prey to supersitition. And many who are non-practising still carry around a little saint card with a picture of Padre Pio in their wallets!
 
-And since Pierre Bayard is right, we know there are books we have yet to read that will help us reflect on cultures different from our own. Little by little: that is how our European identity will become more profound.”  
+(…) And since Pierre Bayard is right, we know there are books we have yet to read that will help us reflect on cultures different from our own. Little by little: that is how our European identity will become more profound.”  
 **Interview with Umberto Eco - It’s culture, not war, that cements European identity - [The Guardian](https://www.theguardian.com/world/2012/jan/26/umberto-eco-culture-war-europa)**
 <hr>
-https://oiuy88.wordpress.com/page/49/ 
-
-
-
+**[More](https://oiuy88.wordpress.com/page/49/)**
