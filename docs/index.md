@@ -1068,5 +1068,222 @@ I was working on a series of figures, in various media (copperplate, charcoal, s
 Cette racine, de quelque maniere qu’on l’apprête, est fade & farineuse. Elle ne sauroit être comptée parmi les alimens agréables; mais elle fournit un aliment abondant & assez salutaire aux hommes, qui ne demandent qu’à se sustenter. On reproche avec raison à la pomme de terre d’être venteuse; mais qu’est – ce que des vents pour les organes vigoureux des paysans & des manoeuvres?  
 **“Pomme de Terre” in L’Encyclopédie - [Chicago University](http://artflsrv02.uchicago.edu/cgi-bin/philologic/getobject.pl?c.12:10:14.encyclopedie0513.41651.41657.41660)**
 <hr>
+**12 January 2015**  
+Je suis triste, mais je ne lisais pas Charlie Hebdo. Je n’aimais pas leur boulot, ni leurs caricatures, même si elles ne m’empêchaient pas de dormir. Je ne peux donc pas “être Charlie” comme le clament certains de mes proches et manifester aux côtés de gens qui me considèrent comme leur ennemi. Ils me détestent et contribueront dans les prochaines semaines à faire croire que je suis un danger potentiel.
+
+Je ne veux pas faire semblant. Après la manifestation, ils me regarderont comme Ben Laden. Ce que je dis peut être mal interprété parce que je suis musulman. Si un athée dit la même chose, ça n’aurait pas la même portée car lui, on ne lui demande pas de montrer patte blanche. Et pourtant, tous les athées n’iront pas manifester, peut-être pour les mêmes raisons que moi. »  
+**Interview with Ramses Kefi - Aprés Charlie Hebdo - [Rue 89](http://www.rue89.nouvelobs.com/2015/01/09/apres-charlie-hebdo-quoiquils-fassent-les-musulmans-sont-bloques-257002) (broken link)**
+<hr>
+**12 January 2015**  
+Through technology the world has become smaller; the states of the large peninsula of Europe appear today as close to each other as the cities of each small Mediterranean peninsula appeared in ancient times.
+
+In the needs and experiences of every individual, based on his awareness of manifold of relations, Europe — one could almost say the world — already outlines itself as an element of unity.
+
+It would consequently be a duty of the educated and well-meaning Europeans to at least make the attempt to prevent Europe — on account of its deficient organization as a whole — from suffering the same tragic fate as ancient Greece once did. Should Europe too gradually exhaust itself and thus perish from fratricidal war?
+
+The struggle raging today will likely produce no victor; it will leave probably only the vanquished. Therefore, it seems not only good, but rather bitterly necessary that educated men of all nations marshall their influence such that — whatever the still uncertain end of the war may be — the terms of peace shall not become the wellspring of future wars.  
+**Einstein and Nicolai - Manifesto to the Europeans, 1914 - [Eutopia](http://www.eutopiamagazine.eu/en/albert-einstein/columns/manifesto-europeans) (broken link)**
+<hr>
+**11 January 2015**  
+![Turkey](https://oiuy88.files.wordpress.com/2015/01/img_0063-1.png?w=620 "Turkey")  
+Ustad Mansur - [Wikipedia](https://en.wikipedia.org/wiki/Ustad_Mansur)
+<hr>
+**11 January 2015**  
+Q: What would a just prison system look like to you?  
+It’s complicated. Most of us in the 21st century abolitionist movement look to W.E.B. Du Bois’ critique about the abolition of slavery — that it was not enough simply to throw away the chains. The real goal was to re-create a democratic society that would allow for the incorporation of former slaves. [Prison abolition] would be about building a new democracy: substantive rights to economic sustenance, to healthcare; more emphasis on education than incarceration; creating new institutions that would tend to make prisons obsolete.  
+Q: You think prisons won’t be necessary one day?  
+It is possible, but even [if it doesn’t happen], we can move to a very different kind of justice that does not require a retributive impulse when someone does something terrible.  
+**Interview with Angela Davis - Angela Y. Davis on what’s radical in the 21st century - [LA Times](https://www.latimes.com/opinion/op-ed/la-oe-morrison-davis-20140507-column.html#page=1)**
+<hr>
+**10 Januarty 2015**  
+The railways that had helped Britain become an industrial power, but which were now haemorrhaging money, were to be cut back brutally. The car would replace the train, Beeching decreed. In doing so, he ushered in an era of vast motorway expansion and cheap motorised transport. The train, deemed dirty and smoky, was earmarked for extinction. If Beeching and other transport planners of the day had had their way, only a rump of inter-city lines would have been left.
+
+Today the makeup of UK transport looks very different from the one envisaged by Dr Beeching. Rail passenger figures have almost doubled over the past 10 years; commuter trains are crammed; young people are deserting the car for the train; and Britain’s railway bosses are struggling to meet soaring demands for seats. The legacy of Beeching – dug-up lines, sold-off track beds and demolished bridges – has only hindered plans to revitalise the network, revealing the dangers of having a single, inflexible vision when planning infrastructure.
+
+(…) Examples of the headaches imposed by Beeching’s legacy include the Varsity line that used to link Oxford and Cambridge and which the government now wants to reopen to connect fast-growing Milton Keynes with Oxbridge’s research centres. Rebuilding the disused western section between Oxford and Bedford will cost £270m and could be ready by 2017. But the track bed of the eastern section, between Bedford and Cambridge, was sold decades ago and has since been built on. How transport planners get round this problem remains to be seen.  
+**Robin McKie - How Beeching got it wrong about Britain's railways - [The Guardian](https://www.theguardian.com/uk/2013/mar/02/beeching-wrong-about-britains-railways)**
+<hr>
+**9 January 2015**  
+But I am not Charlie. I cannot be Charlie as an Indian woman who has seen the sheer arrogance of Western rationalism in my own university. I cannot be Charlie because the freedom to dissent is never the same as the freedom to create racist caricatures from a position of relative privilege and power.
+
+Which is why, as I mourn the horrific violence, I must also stand guard against the poverty of the good-vs-evil discourse. The slain are seldom unproblematic heroes. This however neither justifies their suffering nor for a second makes it okay to blame them for it. It simply means that we have to practice that same difficult freedom of reiterating unpleasant details and guard ourselves against the myth of martyrdom.  
+**Dipsikha Thakur - Je ne suis pas Charlie - [Fly Girls of Cambridge](https://flygirlsofcambridge.com/2015/01/08/dipsikha-thakur-mais-je-ne-suis-pas-charlie/)**
+<hr>
+**8 January 2015**  
+![Thames](https://oiuy88.files.wordpress.com/2015/01/screen-shot-2015-01-07-at-14-31-35.png?w=310)  
+This panorama of the River Thames, engraved by Charles Vizetelly in 1844, was printed in four parts in the London illustrated newspaper Pictorial Weekly. “When readers joined the four parts together, the completed illustration extended to 14 feet in width,” writes the British Library, which has digitized the panorama in seven sections.
+
+The illustration captures ten miles of river, including London landmarks like the Tower of London, Westminster Abbey and the Houses of Parliament, as well as wharfs and warehouses that were sites of commerce and trade. (The Pictorial Weekly captioned the images with proud notes on that commerce: “[The Thames’] bosom bears the ships of all nations, freighted with the richest and rarest products of the earth.”) Tiny carriages and figures traverse the river’s bridges, and boats loaded with all manner of cargo pass by.  
+**Rebecca Onion - A 19th-century panorama of the beautiful, reeking River Thames - [Slate](https://slate.com/human-interest/2014/07/river-thames-panorama-history-image-of-19th-century-london.html)**
+<hr>
+**8 January 2015**  
+For middle-class people, therefore, the spectacle of the city is seen through car windows. If a painter were to paint this middle-class view, as, for instance, so many nineteenth-century painters tried to paint Paris from the perspective of its new, cosmopolitan boulevards, it would not, accordingly, be smooth or intimate. There would be no dwelling, like the Impressionists, on details of costume and gesture, no slow rendition of café light falling on pedestrian faces, no capturing of the almost unnoticeable interactions that happen between strangers in a public place. No, it would be a strobe-lit succession of unrelated glimpses: the covers of Vogue and Autocar flashing in front of the window as a magazine seller rushes between vehicles stopped at a traffic light, the wind-rushed hair of a woman and her child on the back of a speeding motorbike, the one eye of a stray dog caught in the headlights, the glinting instruments of a wedding band – and the whirl of the dancing procession, and the improbable white of the groom’s horse – the lipstick of a cluster of eunuchs pressing their faces to the window, the slump of a human form under a blanket on the highway’s central divide, a face in another car momentarily strip-lit as veering headlights dazzle the rear-view mirror – and a host of impressions of other, unformed characters, animal and human, whose identity it is difficult to discern.  
+**Rana Dasgupta - Capital: A Portrait of Twenty-First Century India**  
+<hr>
+**6 January 2015**  
+‘An English Journey’ was an exhibition of photography and video by Andrew Cross. Alluding to J.B. Priestley’s pre-war state-of-the-nation travelogue, ‘English Journey’, Cross surveys a representative cross-section of contemporary England by retracing the path of the old A34 from Southampton through the Midlands to Manchester. A video, ‘3 Hours from Here’, shot from the cab of one of the many long-distance lorries that continue to ply their trade up and down the route of one of England’s main mercantile arteries, formed the centerpiece of the touring exhibition, which, starting in Southampton, also proceeded to Rugby and then to Manchester. For each venue, as an accompaniment to the video, Cross added a number of photographs, specific to each locality, finding moments of local colour in what many of us might all too easily dismiss as an inherently utilitarian and anonymous landscape.
+**Andrew Cross - An English journey - [Film and Video Umbrella](https://www.fvu.co.uk/projects/an-english-journey)**
+<hr>
+**6 January 2015**  
+There’s a historical sense, too, in which “culture” is a polemical word. In the nineteenth century, Williams explains, “culture” was often opposed to “civilization.” Civilization, the thinking went, was a homogenizing system of efficient, rational rules, designed to encourage discipline and “progress.” Culture was the opposite: an unpredictable expression of human potential for its own sake. (It’s for this reason that a term like “the culture industry” has an oxymoronic ring.) Today, we don’t often use the word “civilization”— we prefer to talk, more democratically, in terms of culture—but we’re still conflicted. We can’t help but notice how “civilized” life seems both to facilitate culture and to deaden it. Museums make it easy to see art, but they also weigh it down. Rock and roll sounds better in a club than in a concert hall. […] The most positive aspect of “culture”—the idea of personal, humane enrichment—now seems especially remote. In its place, the idea of culture as unconscious groupthink is ascendent.  
+**Joshua Rothman - The meaning of culture - [The New Yorker](https://www.newyorker.com/books/joshua-rothman/meaning-culture)**
+<hr>
+**6 January 2015**  
+If, almost unwittingly—for she wasn’t good at words, couldn’t spell and seldom read books—she replaced an “Oh” with an “Ah”, or paused minutely too long, upsetting the rhythm of his music, she would hear his [Beckett’s] murmured “Oh Lord!” from the stalls, and see his head fall to his hands.  
+**Billie Whitelaw obituary - [Economist](https://www.economist.com/obituary/2014/12/30/her-masters-voice)**
+<hr>
+**5 January 2015**  
+Am Eingang [des Anti-Kriegs-Museums] stand ein Schild: “Eintritt für Menschen 20 Pfennig, für Soldaten frei”. Die Reichswehr fühlte sich beleidigt. Ernst Friedrich kam ins Gefängnis. Er hatte bald eine Stammzelle, in der er Strafen für derlei Delikte absaß.
+
+Am Museumseingang hingen zwei Lampen, an einer Lampe ein deutscher Stahlhelm mit “Nie wieder”, an der anderen ein französischer mit “Plus jamais”. Die Stahlhelme waren umgedreht und dienten als Blumenampeln.
+
+Es kam 1933. SA marschierte mit ruhig festem Schritt vor Ernst Friedrichs Museum und montierte von der Aufschrift das “Anti” ab. Nun hieß es “Kriegsmuseum”. Auf höheren Befehl machte man “Erstes Berliner Revolutionsmuseum der SA-Standarte 6, Berlin” daraus. Am 28. Februar wurde Ernst Friedrich verhaftet und ins Zuchthaus gesteckt. 
+**Selbst für Chinesen, 1950 - [Der Spiegel](https://www.spiegel.de/spiegel/print/d-44447612.html)**
+<hr>
+**5 January 2015**  
+Policies everywhere have become stricter since 1990. More importantly, the new study confirms earlier findings about the impact of individual measures: “an increase in stringency of environmental policies does not harm productivity growth.” This contradicts what most governments and companies seem to believe: that green rules may be justified by the need to save the planet but impose immediate economic costs. […] [The study] reckons that a shift from the lowest (Greek) levels of environmental stringency to the highest (Danish) ones further boosts productivity in the most productive manufacturing firms by 0.2-0.6%. But it reduces productivity, by 0.1-0.3%, in firms that were already less productive.  
+**Green tape - [The Economist](https://www.economist.com/finance-and-economics/2014/12/30/green-tape)**
+<hr>
+**5 January 2015**  
+“Architects have given up too easily their role in the architecture of cities, of the public space. It has been left to planning … Most public space is addressed by engineers, trying to get a car somewhere as quickly as possible.”  
+**Obituary for David Mackay - [The Guardian](https://www.theguardian.com/artanddesign/2014/nov/23/david-mackay)**
+<hr>
+**5 January 2015**  
+Abū ʿUthman ʿAmr ibn Baḥr al-Kinānī al-Baṣrī (Arabic: أبو عثمان عمرو بن بحر الكناني البصري‎), commonly known as al-Jāḥiẓ (Arabic: الجاحظ‎, bug eyes, born 776; died December 868/January 869) was an Arab prose writer and author of works of literature, Mu'tazili theology, and politico-religious polemics.
+
+Ibn al-Nadim lists nearly 140 titles attributed to Al-Jahiz, of which 75 are extant. The best known are Kitāb al-Ḥayawān (The book of living), a seven-part compendium on an array of subjects with animals as their point of departure; Kitāb al-Bayān wa-l-tabyīn (The book of eloquence and exposition), a wide-ranging work on human communication; and Kitāb al-Bukhalāʾ (The book of misers), a collection of anecdotes on stinginess.
+
+He is said to have been crushed to death under the weight of his own tomes.  
+**Al-Jahiz - [Wikipedia](https://en.wikipedia.org/wiki/Al-Jahiz)**
+<hr>
+**5 January 2015**  
+The islands [the Laccadives and Maldives] are all planted with coconut palms, which closely resemble date palms but do not bear dates. Many scholars who have specialized in the growth of animals and the grafting of trees claim that the cocnut palm is nothing more than the palm called muql, which under the influence of the soil of India, where it was transplanted, was transformed into the coconut palm.  
+**Mas’udi, The Meadows of Gold, 915**  
+<hr>
+**5 Januarty 2015**  
+![Clément Janequin - Le Chant des Oiseaux](https://oiuy88.files.wordpress.com/2020/10/capture115.png?w=620 "Chant des Oiseaux")  
+**Clément Janequin - Le Chant des Oiseaux - Maxouel et Zviane / [YouTube](https://www.youtube.com/watch?v=XoTfSQOqOis)**  
+Reveillez vous, coeurs endormis  
+Le dieu d’amour vous sonne.  
+A ce premier jour de may,  
+Oyseaulx feront merveillez,  
+Pour vous mettre hors d’esmay  
+Destoupez vos oreilles.  
+Et farirariron (etc…)  
+Vous serez tous en ioye mis,  
+Car la saison est bonne.
+
+Vous orrez, à mon advis,  
+Une dulce musique  
+Que fera le roy mauvis  
+D’une voix autentique.  
+Ty, ty, pyty. (etc…)  
+Rire et gaudir c’es mon devis,  
+Chacun s’i habandonne.  
+
+Rossignol du boys ioly,  
+A qui le voix resonne,  
+Pour vous mettre hors d’ennuy  
+Vostre gorge iargonne:  
+Frian, frian, frian (etc…)  
+Fuiez, regrez, pleurs et souci,  
+Car la saison l’ordonne.  
+
+Ariere maistre coucou,  
+Sortez de no chapitre.  
+Chacun vous donne au bibou,  
+Car vous n’estes q’un traistre.  
+Coucou, coucou (etc…)  
+Par traison en chacun nid,  
+Pondez sans qu’on vous sonne.  
+
+Reveillez vous, coeurs endormis,  
+Le dieu d’amours vous sonne.
+<hr>
+**4 January 2015**  
+It feels bloated, not elegant. It swells towards the top, in celebration of the fact that floor space gets more valuable the higher you go. […] And here’s a suggestion for the 2015 election manifestos: whenever the word “iconic” is included in a planning application it should be substituted with “whooshy”. Then we’ll see how many officers and inspectors can, with a straight face, permit towers like this.  
+**Rowan Moore - Walkie Talkie review – bloated, inelegant, thuggish - [The Observer](https://www.theguardian.com/artanddesign/2015/jan/04/20-fenchurch-street-walkie-talkie-review-rowan-moore-sky-garden)**
+<hr>
+**31 December 2014**  
+While joining Coursera’s “community” does not resemble a job in the “getting paid” aspect of things, it does require you to sign a “Translator Agreement,” which makes clear that the relationship between Coursera and members of the GTC is subject to employment law insofar as it ensures Coursera’s complete and perpetual ownership of value produced by employees — or rather, “volunteers” — but in every other respect, it is not a job, just a way to be nice.
+
+Coursera’s GTC offers the clearest instance yet of an emerging labor force in digital capitalism, which I suggest we call the voluntariat.
+
+The voluntariat performs skilled work that might still command a wage without compensation, allegedly for the sake of the public good, regardless of the fact that it also contributes directly and unambiguously to the profitability of a corporation. Like the proletariat, then, the voluntariat permits the extraction of surplus value through its labor.
+
+(…) Internships have made work more like non-work by uncoupling it from the expectation of wages. Social media has made non-work more like work by permitting the commodification of spheres of activity previously never conceived of as labor. The emergence of the voluntariat follows logically from both of these developments.  
+**Geoff Schullenberger - The rise of the voluntariat - [Jacobin](https://www.jacobinmag.com/2014/05/the-rise-of-the-voluntariat/)**
+<hr>
+**30 December 2014**  
+Linguists are most excited by what MLE is doing to the rhythm of speech. English is usually spoken with a stress-timed rhythm, in which syllables are stressed at regular intervals. Speakers of MLE speak with a syllable-timed rhythm, in which all syllables are accorded roughly the same time and stress, as in French or Japanese. Syllable-timed speech is a characteristic of languages that have come into contact with other languages. Versions of it may have existed in multicultural places such as Hackney for centuries, thinks Mr Kerswill.  
+**The rise of Multicultural London English - [The Economist](https://www.economist.com/britain/2013/11/02/argot-bargy)**
+<hr>
+**18 December 2014**  
+Sur un autre plan, on pourrait tout à fait voir dans cette nouvelle un simple retour à la logique. Lorsque Diderot et d’Alembert conçurent l’Encyclopédie, ils imaginèrent d’abord une nouvelle organisation du savoir. Une organisation collaborative, où les auteurs étaient nombreux, une organisation cyclique, où les entrées renvoyaient les unes aux autres, et en mouvement continuel où les articles évoluaient à mesure qu’évoluaient les objets, techniques et savoirs, dont il était question.
+
+Cette nouvelle organisation du savoir trouva place dans le livre parce qu’il n’y avait rien d’autre pour en assurer la diffusion. Son succès, et le rôle historique qu’eut l’Encyclopédie, à la fois en termes pédagogiques et politiques, disent bien que ce fut une œuvre extraordinaire. Mais, d’emblée, c’était aller à l’encontre de toutes les ambitions du projet que de le faire entrer dans un support lourd, fixe et épais comme le livre.
+
+Comme aime à l’expliquer le chercheur suisse Frédéric Kaplan, que l’encyclopédie soit un livre est un accident de l’Histoire, l’encyclopédie a toujours excédé le livre, elle était coincée dans le livre, qui en faisait un objet un peu absurde. Des énormes volumes, des index compliqués à manier, et surtout une caducité très rapide de nombreux articles qui nécessitaient des volumes de réactualisation rendant encore plus compliqué le maniement. Puis vint le Web.  
+**Xavier de La Porte - Universalis dépose le bilan - [Nouvelle Obs](https://www.nouvelobs.com/rue89/rue89-rue89-culture/20141122.RUE6720/universalis-depose-le-bilan-la-fin-d-un-accident-de-l-histoire.html)**
+**18 December 2014**  
+What is clearer to me, however, is that we have projected the ironies and insecurities and indeterminacies of Postmodernism back onto Romanticism; we have reinvented the Romantics into our own image (which, incidentally, is the other side of the “anxiety of influence”–I mean absorption, assimilation).
+
+Certain topics or problems or figures, however, do run from Romanticism, through Modernism, to Postmodernism, mutating all the while. For instance, Romantic Imagination becomes Modernist Consciousness becomes Postmodernist Language–from Imagination to Language, as master tropes. And the Romantic Self becomes the Modernist Ego becomes the Postmodernist empty Subject, itself a Discourse. But these are largely French conceits: try to tell the Self or the Ego or the Subject or your child, for that matter, that its imperious needs are a form of absence, dissemination, or deferral.
+
+(…) I have come to distrust abstractions, especially bloodied abstractions (to misquote Wallace Stevens); that is, abstractions that demand human blood to maintain them for a higher end. No!
+
+(…) “Cultural residue” is fine, but I am impressed by the infinite differences within a class, a race, a gender, a family even. We are “constructed” to an indefinite degree, but we also construct back. Chance and biology, self-creation and social influences, all play a part. Strict “constructionists,” who tend to be determinists, can accuse others and exonerate themselves in the same cry. Obviously, this has great appeal, therapeutic and theological appeal.
+
+(…) Q: Indulge me in a Gedankenexperiment: suppose, if you will, that we lived in a culture where any literary-critical act, spoken or written, were taboo–the equivalent to, say, publicly discussing in detail one’s sexual preferences or experiences. What would such a culture be like? Would a kind of underground criticism emerge? Would the culture be diminished by the absence of public voices of criticism?
+
+IH: A Gedankenexperiment deserves another. We would get what I call Angelic Criticism, angelic reading of texts: total identification with texts, in silence. Or, if you wish, [Pierre] Menardian Criticism: rewriting the text in identical words. It would be better, wouldn’t it, than the class that begins every “discussion” with, “Now, what’s wrong with this book?”  
+**Interview with Ihab Hassan - [Ihab Hassan](www.ihabhassan.com/cioffi_interview_ihab_hassan.htm) (broken link)**
+<hr>
+**18 December 2014**  
+Allan Sekula, who had grown up in the Los Angeles harbour town of San Pedro, was learning that the maritime world, far from being a realm of pleasure cruises and play, was riven by struggle and class conflict. Since then much of his extraordinary body of experimental work has been devoted to chronicling the social, economic and political dynamics of life on the oceans. His latest exercise in hydropoetics, a cine-essay entitled The Forgotten Space that he co-directed with Noël Burch, uses the statistic that 90% of cargoes today are carried by ship as its cue to develop a wide-ranging thesis about containerisation, globalisation and invisible labour.
+
+(…) “The sea is all about slow time – things move slowly, there’s a lot of waiting – and as such it contradicts all the mythologies of instantaneity perpetuated by electronic media.”  
+**Interview with Allan Sekula - [The Guardian](https://www.theguardian.com/film/2012/apr/20/allan-sekula-resistance-at-sea)**
+<hr>
+**18 December 2014**  
+While his photographic work has sought to renew the documentary tradition, Sekula’s practice as a theorist and historian of photography has been equally crucial to his search for a way beyond the habitual lapse of the discourse of documentary into either a scientistic objectivism or a romantic and expressive subjectivism. Sekula stands as one of very few contemporary artists – matched only, perhaps, by his early interlocutor Martha Rosler – to have continually and convincingly resisted the conventional division of labour between practitioner and critic.
+
+(…) [T]he renewed attention to the economic subject in Fish Story ­may be considered as a challenge not only to the shortcomings of an embodied identity politics. Sekula’s project also contested the concealment of the world of production by the art world’s attachment to the fatalistic orthodoxy of a ‘simulationist’ world of endless, autonomous image-proliferation.
+
+(…) The counterpart, then, to the familiar post-industrial and postmodern visions of social reproduction founded on service labour, the creative industries and the fashioning of consumer experiences in the advanced societies of the North has been the ebbing visibility of material production over the last thirty to forty years in those same countries. While commodity chains have proliferated exponentially, their links have become both more numerous and more fragile as a result of such trends as the dissociation of brand ownership from factory ownership, and the relocation of factory work to ad hoc, clandestine Export Processing Zones in the global South as well as subterranean sweatshops in the North. One significant consequence of this has been the expansion of an ever larger industrial labour pool for capital’s ever more itinerant hand to grasp, and the rapid growth of a global reserve army of labour; an underpaid ‘precariat’ whose insecurity is the flipside to the cherished autonomy of the cosmopolitan freelancer.”  
+**Bill Roberts - Production in View: Allan Sekula’s Fish Story and the thawing of postmodernism  on Fish Story - [Tate](https://www.tate.org.uk/research/publications/tate-papers/18/production-in-view-allan-sekulas-fish-story-and-the-thawing-of-postmodernism)**
+<hr>
+**16 December 2014**  
+But government works in strange ways in Myanmar: Many decisions are made on an ad hoc basis, and developers are looking for cheap insider deals as the economy goes through a rough transition. There is no legal framework for protection of the buildings, and no discussion of how to protect the people who have been living in hallways, towers and hidden back rooms.
+
+(…) At the heart of the plan will be the idea that downtown Yangon should retain its vibrancy rather than become another sanitized zone that appeals to well-to-do tourists impressed by expensive hotels and tony cafes, Mr. Thant Myint-U said. To preserve a sense of authenticity, he said, there will be efforts to keep residents in some of the buildings, perhaps with subsidized rents, and to limit the number of big, impersonal international hotels that attract foreign visitors but are off-limits to most locals.  
+**Jane Perlez - Preserving Rangoon - [The New York Times](https://www.nytimes.com/2014/12/14/world/racing-to-save-a-colonial-past-in-decay.html)**
+<hr>
+**16 December 2014**  
+In one sense, then, the real is connected to trauma, and in another sense to matter. But these aren’t really two separate categories. For Freud, psychic trauma is a material phenomenon, since all mental existence is material: in Beyond the Pleasure Principle, he defines the organism – human or otherwise – as being, at root, ‘an undifferentiated vesicle of a substance that is susceptible to stimulation’. The central nervous system is an ‘ectoderm’ or outside skin that serves as ‘an organ for receiving stimuli’ or ‘excitatory traces’.  
+**Tom McCarthy - Writing machines - [LRB](https://www.lrb.co.uk/the-paper/v36/n24/tom-mccarthy/writing-machines)**
+<hr>
+**9 December 2014**  
+The crisis in journalism is a business crisis, and it’s been going on for twenty years; the outcome remains far from obvious. Writers and editors at magazines and newspapers live with a perpetual sense of foreboding, which leads to plummeting self-confidence in their own work and a tendency to overestimate the new digital enterprises, or the new digitally rich owners of the old enterprises. It’s easy to feel that the very task of reporting and writing in depth, at length, and in complex detail is somehow to blame for their problems. It isn’t—but, faced with a deeply uncertain future, they become, in a phrase from Robert Stone’s novel “A Flag for Sunrise,” the mouse so scared it went to the cat for love.”  
+**George Packer - The real crisis of journalism - [New Yorker](https://www.newyorker.com/news/daily-comment/real-crisis-journalism-new-republic)**
+<hr>
+**8 December 2014**  
+Blogging, as “casual” theory production, is much closer to this contemporary process of taking and transmitting photographs than, let’s say, writing an academic essay. But still it is not the same. The only thing that would come really close would be permanently recording oneself and others with a Dictaphone and immediately uploading it onto YouTube—something that, strangely, we are not normally doing, as if what we said to each other at that lovely evening with friends was less important, and easier to remember, than how we were dressed.”  
+**Ekaterina Degot - Still Searching - [Fotomuseum Winterthur](https://www.fotomuseum.ch/en/explore/still-searching/articles/26997)**
+<hr>
+**7 December 2014**  
+One of the advantages of living in Europe is that I get birthday greetings from the German president, Wulff, and the Spanish prime minister, Rajoy, neither of whom I know. After being at each other’s throats for years in fratricidal wars, we’re now all culturally European.
+
+(…) That’s the way it is. Back when Pope Wojtyla was still alive, there was much discussion on whether they should accept the European constitution and the continent’s Christian roots. Secular people predominated and they did nothing about it. The church protested. There was however a third way, more difficult, but one that would give us strength today.
+
+And that would have been to speak of the constitution of all our roots – the Greek-Roman, the Judaic and the Christian. In our past, we have both Venus and the crucifix, the Bible and Nordic mythology, which we remember with Christmas trees, or with the many festivals of St Lucy, St Nicolas and Santa Claus. Europe is a continent that was able to fuse many identities, and yet not confuse them.
+
+That is precisely how I see its future. As for religion: be careful. Many people who no longer go to church end up falling prey to supersitition. And many who are non-practising still carry around a little saint card with a picture of Padre Pio in their wallets! […]
+
+And since Pierre Bayard is right, we know there are books we have yet to read that will help us reflect on cultures different from our own. Little by little: that is how our European identity will become more profound.”  
+**Interview with Umberto Eco - It’s culture, not war, that cements European identity - [The Guardian](https://www.theguardian.com/world/2012/jan/26/umberto-eco-culture-war-europa)**
+<hr>
+https://oiuy88.wordpress.com/page/49/ 
+
 
 
