@@ -439,7 +439,7 @@ Back on the ground, Fair says his environmental images must be both meaningful a
 Consider a student who always starts her homework the moment it’s assigned.  What might look like an admirable display of self-discipline, given that there are other things she’d rather be doing, may actually be due to an acute discomfort with having anything unfinished.  She wants – or, more accurately, needs – to get the assignment out of the way in order to stave off anxiety.  (The fact that something resembling self-discipline is required to complete a task doesn’t bode well for the likelihood of deriving any intellectual benefit from it.  Learning, after all, depends not on what students do so much as on how they regard and construe what they do.  To assume otherwise is to revert to a crude behaviorism long since repudiated by serious scholars.)
 
 More generally, self-discipline can be less a sign of health than of vulnerability.  It may reflect a fear of being overwhelmed by external forces, or by one’s own desires, that must be suppressed through continual effort.  In effect, such individuals suffer from a fear of being out of control.  In his classic work Neurotic Styles, David Shapiro described how someone might function as “his own overseer, issuing commands, directives, reminders, warnings, and admonitions concerning not only what is to be done and what is not to be done, but also what is to be wanted, felt, and even thought.”  Secure, healthy people can be playful, flexible, open to new experiences and self-discovery, deriving satisfaction from the process rather than always focused on the product.  An extremely self-disciplined student, by contrast, may see reading or problem-solving purely as a means to the end of a good test score or a high grade.  In Shapiro’s more general formulation, such people “do not feel comfortable with any activity that lacks an aim or a purpose beyond its own pleasure, and usually they do not recognize the possibility of finding life satisfying without a continuous sense of purpose and effort.”  
-**Alfie Kohn - Why Self-Discipline is Overrated - [Alphie Kohn](https://www.alfiekohn.org/article/self-discipline-overrated/)**
+**Alfie Kohn - Why Self-Discipline is Overrated - [Alfie Kohn](https://www.alfiekohn.org/article/self-discipline-overrated/)**
 <hr>
 **16 March 2017**  
 Upon a heap of rubbish in the road-side ditch blooms a lotus, fragrant and pleasing.  
@@ -850,3 +850,95 @@ With the opening of Delhi Blue Art Pottery, Singh is credited with having founde
 Industry never came, partly because of the complex issue of land acquisition as well as the insurmountable populism of West Bengal’s politics. But existing houses and neighbourhoods continued to be destroyed because of the ethos created by “developers” – a euphemism, often, for a new breed of land sharks. This ethos dictated that houses on prime land needed to be bought up and immediately destroyed for the price of the land they stood on. So the houses were never put on the market, and their market value was never determined.  
 **Amit Chaudhuri - Calcutta's architecture is unique. Its destruction is a disaster for the city - [The Guardian](https://www.theguardian.com/cities/2015/jul/02/calcutta-architecture-heritage-destruction-city-campaign-amit-chaudhuri)**
 <hr>
+**8 August 2015**  
+![Silicon close shaves](https://oiuy88.files.wordpress.com/2015/08/img_2044.jpg?w=310 "Silicon close shaves")
+<hr>
+**8 August 2015**  
+Bellaghy – Heaney’s home and the subject of his work – was only 10 miles from Cookstown. “I knew it. I would drive through Moy, the venue of many of Paul Muldoon’s poems, every Saturday on the way to visit my granny. The fact that these places were being made strange by poetry was very exciting. That ability to look at something again, to open up a space of second thoughts, is so important to Northern Ireland, where all of your instincts have been trained by politicians and churches to go in a particular direction. Poetry seemed a way of clearing all that away. You suddenly realised there were other ways of approaching certain questions.  
+**Interview with Nick Laird - [The Guardian](https://www.theguardian.com/books/2013/jan/04/nick-laird-life-in-writing)**
+<hr>
+**7 August 2015**  
+That is why she desperately wants to have that parcel of notebooks and letters.
+
+She knows, of course, that there are also quite a few unpleasant things in the notebooks, days of dissatisfaction, arguments, and even boredom, but that is not what matters. She does not want to give back to the past its poetry. She wants to give back to it its lost body. What is urging her on is not a desire for beauty. It is a desire for life.
+
+For Tamina is adrift on a raft and looking back, looking only back. Her entire being contains only what she sees there, far behind her. Just as her past contracts, disintegrates, dissolves, so Tamina is shrinking and losing her contours.  
+**Milan Kundera - The Book of Laughter and Forgetting**
+<hr>
+**7 August 2015**  
+But the 8-hour workday is too profitable for big business, not because of the amount of work people get done in eight hours (the average office worker gets less than three hours of actual work done in 8 hours) but because it makes for such a purchase-happy public. Keeping free time scarce means people pay a lot more for convenience, gratification, and any other relief they can buy. It keeps them watching television, and its commercials. It keeps them unambitious outside of work.  
+**David Cain - The real reason for the forty-hour workweek - [Films for Action](https://www.filmsforaction.org/news/your-lifestyle-has-already-been-designed/)**
+<hr>
+**20 July 2015**  
+As a group of technologies, more demand for renewables means lower prices and higher quality constantly evolving for a long time to come. The resources they compete with – coal, oil and gas – follow a different pattern. If demand kept increasing, prices would go up because the newer reserves cost more to develop, such as deep sea oil. They may get cheaper through market shifts, as they have done recently, but they can’t keep getting cheaper and they can never get any better.
+
+In that context, consider this. Renewables are, today, on the verge of being price competitive with fossil fuels – and already are in many situations. So in 10 years, maybe just five, it is a no-brainer that renewables will be significantly cheaper than fossil fuels in most places and will then just keep getting cheaper. And better.  
+**Paul Gilding - Fossil Fuels are finished, the rest is just detail - [ReNew Economy](https://reneweconomy.com.au/fossil-fuels-are-finished-the-rest-is-just-detail-71574/)**
+<hr>
+**18 July 2015**  
+Many early Klan members learned these traditions as children growing up among African-Americans. Many original Klansmen were raised by black elders who famously told their charges folktales and stories centered in the early African-American culture. They, as much as their black playmates, feared the revenge of “Raw Head and Bloody Bones”, witches and “the Hairy Man” for disobeying the authority of their caretakers. White children often dressed up along with black children and participated in masquerades – where they saw men dress like women and hide their identities under Spanish moss or animal skins. White children even joined in the revelry by darkening their skin to appear “colored”. All of these traditions would be later used by the early Klan as a way to intimidate African-Americans.  
+**Michael W Twitty -  Cultural appropriation in America can be audacious. Just look at the Ku Klux Klan - [The Guardian](https://www.theguardian.com/commentisfree/2015/jul/18/ku-klux-klan-history-african-tradition-terrorize-black-americans)**
+<hr>
+**13 July 2015**  
+Ultimately, as with so many recent issues, Europe will need to decide if it has the generosity and spirit to live up to its own ideals. Though member countries may be struggling with economic and political problems of their own, the data suggests they have the capacity to step up during this crisis. And, according to their own laws and customs, they have a responsibility to.  
+**Kavitha Surana - Data show how manageable Europe’s refugee crisis could be - [Quartz](https://qz.com/448228/data-show-how-manageable-europes-refugee-crisis-could-be/)**
+<hr>
+**12 July 2015**  
+Let’s go back to Douwe Draaisma. Why does he describe our inability to recall the sense impressions of a few seconds before as “forgetting”? That would imply that I had “possessed” those impressions or wanted to possess them. The underlying implication is that life has less worth, less dignity, if it just, as it were, slips by. Yet even as I write now I am aware of scores of sense impressions. The position of papers, teacups, pens, phone, and books on the glass surface of my living-room table, which is also reflecting the opposite wall with its shelves and bric-a-brac and, as it happens, fresh white paint; the hum of the fridge and a distant siren, a dog barking and the sunlight bouncing off the façade across the street yellowing the cream color of my curtains. I will never be able to recall a fraction of all this tomorrow, or a year hence. Yet such perceptions are very much part of the pleasure of being here in the present as I write and without them life would be poor indeed.
+
+(…) We do not possess the past, even that of a few moments ago, and this is hardly a cause for regret, since to do so would severely obstruct our experience of the present.  
+**Tim Parks - Reading is forgetting - [New York Review of Books](https://www.nybooks.com/daily/2015/06/26/reading-is-forgetting/)**
+<hr>
+**12 July 2015**  
+“There’s nothing more rewarding than a fresh set of problems,” Barthelme commented in a 1987 interview. He both celebrated and despaired of them, and his work essentially represents an ongoing investigation into problematic relationships – between the conflicting sides of the self; men and women; races and societies; competing ideologies; nature and technology; high and low culture; language and meaning – and a sustained attempt to carry out this investigation in an original, meaningful way.  
+**Chris Power - A brief survey of the short story part 16: Donald Barthelme - [The Guardian](https://www.theguardian.com/books/booksblog/2009/apr/01/donald-barthelme-short-story)**
+<hr>
+**12 July 2015**  
+Es gibt heute keinen Unterschied mehr zwischen Mitte-Links und Mitte-Rechts. Österreich ist da ein gutes Beispiel. Die bekannten Soziologen Anthony Giddens und Ulrich Beck meinten, das sei ein Fortschritt, die Demokratie werde reifer, wir müssen links und rechts überwinden. Dieser Meinung bin ich nicht. Konsens gefährdet die Demokratie. Wenn es keinen Unterschied mehr zwischen rechts und links gibt, fragen sich die Menschen, warum sie überhaupt wählen sollen. Dazu passt ein Slogan der spanischen Linkspartei Podemos: Wir haben eine Wahlstimme, aber keine Stimme.
+
+(…) Meine Verteidigung des Linkspopulismus hat viel mit meiner Theorie zu tun, dazu muss ich etwas ausholen. Die Frage ist, wie man Politik versteht. Es gibt in der politischen Theorie zwei Ansätze. Einmal den assoziativen Ansatz, bei dem man davon ausgeht, dass Politik ein gemeinsames Projekt ist, bei dem man an Lösungen arbeitet, mit denen alle zufrieden sind. Beim dissoziativen Ansatz geht man aber davon aus, dass Politik immer von Konflikten bestimmt wird. Mein verstorbener Mann Ernesto Laclau und ich vertreten diese Sicht. Politischer Konflikt ist immer antagonistisch, Politik ist immer parteiisch – und die Gesellschaft ist und bleibt gespalten. Politische Identitäten sind immer kollektive Identitäten. Es gibt also immer ein “Wir” und ein “die Anderen”.  
+**Interview with Chantal Mouffe - Konsens gefährdet die Demokratie - [Wiener Zeitung](https://www.wienerzeitung.at/nachrichten/reflexionen/zeitgenossen/758416_Konsens-gefaehrdet-die-Demokratie.html)**
+<hr>
+**12 July 2015**  
+Syriza and the Spanish Podemos movement are marshaling their powers against these old systems. Their goal isn’t just to hold power, but to fundamentally alter the political culture. The cultural shift is akin to the concept of cultural hegemony as put forth by the Italian Marxist Antonio Gramsci, one of Laclau’s most prominent sources of inspiration.
+
+When seen from that particular angle, “symbolic politics” are not inferior. Quite the opposite. In the long run, symbolic politics are the most important form of politics.  
+**The Latin-Americanization of Greece - [Worldcrunch](www.worldcrunch.com/opinion-analysis/the-latin-americanization-of-greece-the-real-tspiras-agenda-syriza-populism-tsipras-laclau-podemos) (broken link)**
+<hr>
+**12 July 2015**  
+A Fata Morgana is a complex form of superior mirage that is seen in a narrow band right above the horizon. It is an Italian term named after the Arthurian sorceress Morgan le Fay, from a belief that these mirages, often seen in the Strait of Messina, were fairy castles in the air or false land created by her witchcraft to lure sailors to their deaths.
+
+Fata Morgana mirages significantly distort the object or objects on which they are based, often such that the object is completely unrecognizable. A Fata Morgana may be seen on land or at sea, in polar regions, or in deserts. It may involve almost any kind of distant object, including boats, islands, and the coastline.  
+**Fata Morgana - [Wikipedia](https://en.wikipedia.org/wiki/Fata_Morgana_%28mirage%29)**
+<hr>
+**12 July 2015**  
+Hasta hace poco se pensaba que modificar y automatizar un hábito requería 21 días. ¡Demasiado optimismo! Un estudio reciente de Jane Wardle, del University College de Londres, publicado en European Journal of Social Psychology, afirma que para convertir un nuevo objetivo o actividad en algo automático, de tal forma que no tengamos que tirar de fuerza de voluntad, necesitamos 66 días.
+
+Sinceramente, ¡qué más da que sean 21 o 66! Lo interesante es que somos capaces de aprender, entrenar y modificar lo que elijamos y deseemos. El número de días es relativo. Depende de factores como la insistencia, perseverancia, habilidades, de las variables psicológicas de la personalidad y del interés. El cambio ronda en torno a los dos meses y pico. ¿Qué son dos meses en el ciclo de nuestra vida? Nada. Se necesita ese tiempo para ser capaces de dar el cambio que deseamos. Y esto nos hace libres y poderosos.  
+**Patricia Ramírez - 66 días bastan para cambiar un hábito - [El País](https://elpais.com/elpais/2015/07/01/eps/1435765575_333302.html)**
+<hr>
+**10 July 2015**  
+We need a new kind of stories, stories that tell us that nature is resilient and can rebound and get back to a healthier state, if we give it a chance to do so. We need stories that tell us that we can collaborate with nature, that we can, as Pope Francis has urged, be stewards and partners of the natural world rather than dominators of it. We need stories about a new kind of happiness not based on material consumption.
+
+Since we have a pretty good understanding of the barriers, that is a good place to start. We need to flip the barriers over so they become successful strategies. Rather than something distant, communicators need to make climate change feel like something that is near, personal, and urgent. Rather than doom, we need to emphasize the opportunities that the crisis affords us.
+
+Climate change is an opportunity for economic development — an entire energy system has to be redesigned from the wastefulness of the previous century to a much smarter mode of doing things. It’s a great opportunity to improve global collaboration and knowledge sharing and to create a more just society. So climate change is a fantastic opportunity to encourage our global humanity to emerge. We need to be talking about this.  
+**Interviews with Per Espen Stoknes - How can we make people care about climate change? - [Yale Environment 360](https://e360.yale.edu/features/how_can_we_make_people_care_about_climate_change)**
+<hr>
+**21 July 2015**  
+The boundary between the nineteenth-century Orient (as the Near East used to be called) and Europe was the place where cholera was controlled. Various quarantine practices were set up every year in and around the Mecca pilgrimage, because there was constant European anxiety that this mass movement – in a place that is just adjacent to Europe – would introduce cholera into Europe itself. So that boundary, which was not an actual territorial border but, rather, an important part of how Europe defined itself in relation to its most adjacent neighbour, the Orient, was made meaningful through very specific, very grounded, practices of inspecting people, putting them in quarantine camps, and monitoring or restricting their movement.
+
+(…) The other fascinating thing about quarantine is that it dreams of being non-porous, but in fact, quarantine lines are always leaky. Quarantine, like today’s passports and visas, is much more about letting some people through and keeping other people out, than enforcing a total border.  
+**Interview with Alison Bashford - Biology at the border - [Edible Geography](http://www.ediblegeography.com/biology-at-the-border-an-interview-with-alison-bashford/)**
+<hr>
+**7 June 2015**  
+“Productive jobs, David Graeber argues, have been automated away and replaced by administrative ones which masquerade as service: HR, PR, financial services, ancillary industries like dog-washing and all-night pizza delivery. These bulsshit jobs are very like T’s. It’s work that looks like work – it fills ups a fort-hour week – but feels pointless to the people doing it and wouldn’t be missed if it disappeared.”  
+**Joanna Biggs - A day’s work - [LRB](https://www.lrb.co.uk/the-paper/v37/n07/joanna-biggs/a-day-s-work)**
+<hr>
+**31 May 2015**  
+“Both of these schemes were driven by a preoccupation with trying to express the individual dwelling within a much bigger overall complex,” says Macintosh, when we meet at Leigham Court Road. “We were fighting against the blunt anonymity of the monotonous slab blocks that were popping up everywhere at the time.”
+**Interview with Kate Macintosh - The battle to save Lambeth's modernist sheltered housing - [The Guardian](https://www.theguardian.com/artanddesign/architecture-design-blog/2014/apr/18/the-battle-to-save-lambeths-modernist-sheltered-housing)**
+<hr>
+
+
+
