@@ -1,3 +1,9 @@
+**6 October 2020**  
+However much targeted advertising may have skewed the internet—prioritizing attention-grabbiness over quality, as Hwang suggests—that doesn’t mean we ought to let the system collapse on its own. We might hope instead for what Hwang calls a “controlled demolition” of the business model, in which it unravels gradually enough for us to manage the consequences.
+
+How might that work? Hwang proposes a publicity campaign by researchers, activists, and whistleblowers that exposes the sickness of the online ad market, followed by regulations to enforce transparency. Digital advertisers would have to make public, standardized statements to help buyers evaluate their wares. The goal would be to narrow the dangerous disconnect between perceived and actual value.  
+**Gilad Edelman - Ad tech could be the next internet bubble - [WIRED](https://www.wired.com/story/ad-tech-could-be-the-next-internet-bubble/)**
+<hr>
 **6 October 2020**
 These dense plays are concerned with a transition from a world of mystery to a world of history, from war to peace, from myth to reality, from aristocratic households to the democratic society of contemporary Athens. They describe the triumph of law over personal vendettas and revenge, and show the direct violence of the axe and the sword giving way to the buried structural violence of law and social institutions. They provide an implicit justification and celebration of recent Athenian history and the current political regime: in real life, the political and legal structures of democracy had replaced the old system of rule by tyrants, and there were still powerful aristocratic men in Athens who favoured oligarchy over democracy.
 
