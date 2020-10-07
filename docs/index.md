@@ -84,7 +84,7 @@ The “culture of poverty” script is a reliable alibi that lets the bad behavi
 **Ruha Benjamin - Black Skin, White Masks: Racism, vulnerability & refuting black pathology - [Department of African American Studies, Princeton](https://aas.princeton.edu/news/black-skin-white-masks-racism-vulnerability-refuting-black-pathology) - [Archive](https://web.archive.org/web/20200630001830/https://aas.princeton.edu/news/black-skin-white-masks-racism-vulnerability-refuting-black-pathology)**
 <hr>
 **20 January 2020**  
-![Thames birds](https://oiuy88.files.wordpress.com/2020/10/16ff0658-57b3-4d69-b54e-8cf5d33e5abf.gif?w=840?w=620 "Thames birds")
+![Thames birds](https://oiuy88.files.wordpress.com/2020/10/16ff0658-57b3-4d69-b54e-8cf5d33e5abf.gif?w=640 "Thames birds")
 <hr>
 **16 January 2020**  
 RS: I think we have a political duty not to use it [social media] to vent, not to use it to write, and not to allow it to harness our personal relations, and we also have a duty to save as much of our free time as possible from being captured by capital. I don’t want to take a moralising tone, but it’s similar to the duty to take your life seriously. If you take your life seriously, and take an overview of it, it’s pretty hard to justify the things we allow ourselves to do all the time. It’s not like anyone’s pure, and I’m not in a position to offer anyone salvation, I’m just saying that if you can do something else with those 50,000 hours of your life, and can use it in a professional way…  
