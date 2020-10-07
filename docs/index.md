@@ -83,6 +83,9 @@ Exhibit B: The US Surgeon General singled out Blacks and Latinos to urge “no d
 The “culture of poverty” script is a reliable alibi that lets the bad behavior of powerful institutions off the hook, and goes back to at least the Moynihan Report in which Black women, in particular, are blamed for the so-called disfunctions of Black families and communities.  
 **Ruha Benjamin - Black Skin, White Masks: Racism, vulnerability & refuting black pathology - [Department of African American Studies, Princeton](https://aas.princeton.edu/news/black-skin-white-masks-racism-vulnerability-refuting-black-pathology) - [Archive](https://web.archive.org/web/20200630001830/https://aas.princeton.edu/news/black-skin-white-masks-racism-vulnerability-refuting-black-pathology)**
 <hr>
+**20 January 2020**  
+![Thames birds](https://oiuy88.files.wordpress.com/2020/10/20a2375d-c57e-4ee3-8e26-6b8e65324ea8.gif?w=620 "Thames birds")
+<hr>
 **16 January 2020**  
 RS: I think we have a political duty not to use it [social media] to vent, not to use it to write, and not to allow it to harness our personal relations, and we also have a duty to save as much of our free time as possible from being captured by capital. I don’t want to take a moralising tone, but it’s similar to the duty to take your life seriously. If you take your life seriously, and take an overview of it, it’s pretty hard to justify the things we allow ourselves to do all the time. It’s not like anyone’s pure, and I’m not in a position to offer anyone salvation, I’m just saying that if you can do something else with those 50,000 hours of your life, and can use it in a professional way…  
 OH: Or you could go for a walk.  
