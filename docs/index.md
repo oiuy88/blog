@@ -31,7 +31,8 @@ What makes Radiohead’s music such a radical endeavour to me are these deeply i
 **Daphne A Brooks - Why Radiohead are the Blackest white band of our times - [The Guardian](https://www.theguardian.com/music/2020/oct/02/why-radiohead-are-the-blackest-white-band-of-our-times)**
 <hr>
 **2 October 2020**  
-![Ligurian sea](https://oiuy88.files.wordpress.com/2020/10/f912a6b8-d419-4e37-8f4a-5b2d6ec50d06.gif?w=640 "Liguria")
+![Liguria](https://oiuy88.files.wordpress.com/2020/10/f912a6b8-d419-4e37-8f4a-5b2d6ec50d06.gif?w=640 "Liguria")
+<hr>
 **6 July 2020**  
 Before protest there is a oppression, lack of popular support, and the hard work of awareness-raising. After that comes the high-octane action, the moral clarity – and allies hop on board. But once the first blood rush of protest subsides, the people who are still on the streets are mocked by their erstwhile allies, impatient to find fault with the movement and get back to their lives without any further disruption. What was universally celebrated a few weeks ago is now faintly embarrassing: too radical, too combative, almost comically unrealistic. You might think of the trajectory of the Black Lives Matter protests so far as like that famous quote misattributed to Gandhi, but this time in reverse: first you win, then they fight you, then they laugh at you, then they ignore you.  
 **Nesrine Malik - It seems black lives don't matter quite so much, now that we've got to the hard bit - [The Guardian](https://www.theguardian.com/commentisfree/2020/jul/06/black-lives-matter-protests-change-demands) - [Archive](https://web.archive.org/web/20200708020933/https://www.theguardian.com/commentisfree/2020/jul/06/black-lives-matter-protests-change-demands)**
