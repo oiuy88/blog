@@ -1,5 +1,3 @@
-![moth](https://oiuy88.files.wordpress.com/2020/10/img-2297.jpg?w=640)
-
 **6 October 2020**  
 However much targeted advertising may have skewed the internet—prioritizing attention-grabbiness over quality, as Hwang suggests—that doesn’t mean we ought to let the system collapse on its own. We might hope instead for what Hwang calls a “controlled demolition” of the business model, in which it unravels gradually enough for us to manage the consequences.
 
