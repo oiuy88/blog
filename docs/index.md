@@ -1,3 +1,9 @@
+**8 October 2020**  
+The decline of going out is a pre-existing trend, but one that the pandemic will accelerate. Plenty of dressing gown-loving homebodies have already settled into this nicely. As the public sphere is eroded even further in the next few years, many of them will react with chortling indifference, so long as they can still order takeaways and watch content on the multiple entertainment platforms to which they subscribe.
+
+This dressing-gown capitalism has done well out of Covid, with both streaming and takeaway apps enjoying a surge in usage, helped by the fact that staying in has come to be seen as morally virtuous. The responsibility for what happens after the pandemic lies with the government rather than consumer preferences, but it looks like people will continue to spend more time at home. There will be fewer places to go, fewer things to do and less communal space. At some point, checking our phones for the hundredth time while watching “UNTITLED DISNEY LIVE ACTION (2023)” on a laptop, we might start to regret this.  
+**James Greig - The pain of cinema closures isn’t just economic - [The Guardian](https://www.theguardian.com/commentisfree/2020/oct/08/pain-cinema-closures-isn-t-just-economic-respite-social-function)**
+<hr>
 **6 October 2020**  
 However much targeted advertising may have skewed the internet—prioritizing attention-grabbiness over quality, as Hwang suggests—that doesn’t mean we ought to let the system collapse on its own. We might hope instead for what Hwang calls a “controlled demolition” of the business model, in which it unravels gradually enough for us to manage the consequences.
 
