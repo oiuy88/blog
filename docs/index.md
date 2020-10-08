@@ -1143,7 +1143,7 @@ Which is why, as I mourn the horrific violence, I must also stand guard against 
 **Dipsikha Thakur - Je ne suis pas Charlie - [Fly Girls of Cambridge](https://flygirlsofcambridge.com/2015/01/08/dipsikha-thakur-mais-je-ne-suis-pas-charlie/)**
 <hr>
 **8 January 2015**  
-![Thames](https://compote.slate.com/images/5b1da8aa-945e-4e4e-a77f-9b25540c5664.jpg?w=640)  
+![Thames](https://compote.slate.com/images/5b1da8aa-945e-4e4e-a77f-9b25540c5664.jpg?w=600)  
 This panorama of the River Thames, engraved by Charles Vizetelly in 1844, was printed in four parts in the London illustrated newspaper Pictorial Weekly. “When readers joined the four parts together, the completed illustration extended to 14 feet in width,” writes the British Library, which has digitized the panorama in seven sections.
 
 The illustration captures ten miles of river, including London landmarks like the Tower of London, Westminster Abbey and the Houses of Parliament, as well as wharfs and warehouses that were sites of commerce and trade. (The Pictorial Weekly captioned the images with proud notes on that commerce: “[The Thames’] bosom bears the ships of all nations, freighted with the richest and rarest products of the earth.”) Tiny carriages and figures traverse the river’s bridges, and boats loaded with all manner of cargo pass by.  
