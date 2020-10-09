@@ -3,7 +3,7 @@ While I’ve been working on this essay, I’ve made myself watch the clip of �
 
 Every time I watch the clip I feel a little bit more distant from the person in it, who is both me and not exactly me. Reflexively, as old-me speaks, my brain reiterates the counterarguments I should have made, the ways I should have defended myself, even though it wouldn’t have mattered back then and definitely doesn’t matter now.
 
-When it ends, I try to make myself stay in the moment, rather than rushing immediately to try to find the meaning. It might be that there is no sense to be made of this for me. There’s just the blunt, stupid feeling of humiliation, a strange and specific kind of loss. Who might I have become if this hadn’t been how I’d begun?
+When it ends, I try to make myself stay in the moment, rather than rushing immediately to try to find the meaning. It might be that there is no sense to be made of this for me. There’s just the blunt, stupid feeling of humiliation, a strange and specific kind of loss. Who might I have become if this hadn’t been how I’d begun?  
 **Emily Gould - Replaying my shame: Thirteen years later, what happened at Gawker isn’t going away - [The Cut](https://www.thecut.com/2020/02/emily-gould-gawker-shame.html)**
 <hr>
 **9 October 2020**  
