@@ -6,7 +6,7 @@ That’s not an unalloyed evil – this is how we got Black Lives Matter, non-bi
 
 But you also get people locating people and saying: “Hey, you know, I’m not gonna openly call myself a racist when I’m running for office, but you and I, we’re both quite racist. And I just wanted you to know that.”
 
-So you can build a coalition of racists who would otherwise struggle to find one another because of the social risk that they take if they go public with their views, but it’s really not the same thing as mind control.  
+So you can build a coalition of racists who would otherwise struggle to finged one another because of the social risk that they take if they go public with their views, but it’s really not the same thing as mind control.  
 **Interview with Cory Doctorov - Technologists have failed to listen to non-technologists - [The Guardian](https://www.theguardian.com/media/2020/oct/10/cory-doctorow-technologists-have-failed-to-listen-to-non-technologists)**
 <hr>
 **9 October 2020**  
@@ -1383,7 +1383,7 @@ It is only on seeing the Royal Academy’s long-awaited show that one realises h
 **Laura Cumming - Review of Daumier: Visions of Paris - [The Guardian](https://www.theguardian.com/artanddesign/2013/nov/03/daumier-visions-of-paris-review-royal-academy)**
 <hr>
 **3 November 2014**  
-![William Gedney archive](https://idn.duke.edu/ark:/87924/r4mc8th04?w=640)  
+Collection comprises the entirety of William Gedney's photographic career, beginning with his student years at Pratt Institute in the 1950s to his early death in 1989. The materials reveal Gedney's intense and meticulous dedication to his work, and his interest in street photography, portraiture, night photography, and the study of human nature. His earliest serious project was undertaken in Kentucky, where he stayed with a coal-miner's family for several weeks in 1964 and again in 1972. His work took him across the U.S. several times, with extensive photographic projects in Chicago, Detroit, Pennsylvania, South Dakota - particularly the Rosebud Sioux Indian Reservation, and southern and northern California. During these trips, as well as in New York City, he also photographed well-known composers. Fascinated by human group dynamics, he photographed parades, hippies and other street people, and crowds. He also traveled to Kolkata (Calcutta) and Varanasi (Benares), India, England, Ireland, Paris, and Amsterdam. The collection offers roughly 76,000 unique images represented by the over 2000 contact sheets, with over 19,000 selected images in the form of work prints and 1466 exhibit-quality large prints.  
 **William Gedney archive - [Duke University](https://repository.duke.edu/dc/gedney/gedst018001004)**
 <hr>
 **3 November 2014**  
