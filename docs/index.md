@@ -1385,7 +1385,7 @@ They end up producing work that could be written about, shown and taught within 
 <hr>
 **1 November 2014**  
 ![Hypnerotomachia Poliphili](https://oiuy88.files.wordpress.com/2014/11/6be2d-forest_5.gif?)  
-**Gifs from the Hypnerotomachia Poliphili -MIT Press (link missing)**
+**Gifs from the Hypnerotomachia Poliphili - MIT Press (link missing)**
 <hr>
 **10 October 2014**  
 I inhabit a deep contradiction. I feel like an exile in the face of the growing Jewish ethnicisation that surrounds me, while at the same time the language in which I speak, write and dream is overwhelmingly Hebrew. When I find myself abroad, I feel nostalgia for this language, the vehicle of my emotions and thoughts. When I am far from Israel, I see my street corner in Tel Aviv and look forward to the moment I can return to it. I do not go to synagogues to dissipate this nostalgia, because they pray there in a language that is not mine, and the people I meet there have absolutely no interest in understanding what being Israeli means for me.  
@@ -1448,7 +1448,7 @@ The air seems charged with thunder. I am writing this at a shaky table before th
 It is after eleven now. I shall be gone in less than an hour.  
 But the heat is stifling.  
 It is enough to send a man mad.  
-**WF Harvey - August Heat - [Annexed](http://www.annexed.net/box/augustheat/)
+**WF Harvey - August Heat - [Annexed](http://www.annexed.net/box/augustheat/)**
 <hr>
 **16 September 2014**  
 People in Timbuktu either adapt or leave. As the canal dried up and the winds of rain increasingly brought dust, Mahamane Alphady’s father – “or it could have been my grandfather” – dug a hole. So did all the other market gardeners, creating dozens of craters that fed on the canal’s run-off water. Vegetables grew on their walls. But every year they had to dig deeper. In 1973, his father gave up.  
@@ -1491,5 +1491,35 @@ Brasil, also known as Hy-Brasil or several other variants,[2] is a phantom islan
 **Brasil - [Wikipedia](https://en.wikipedia.org/wiki/Brasil_%28mythical_island%29)**
 <hr>
 **6 September 2014**  
-The banam is a stringed instrument. Banams are the lutes and the fiddles of the Santal people. They are made from locally available material–wood, vegetables and animal hide. The most common banams still made and played by Santals are the Dhodro Banam, the Reta Banam and the Phentor Banam.
+The banam is a stringed instrument. Banams are the lutes and the fiddles of the Santal people. They are made from locally available material–wood, vegetables and animal hide. The most common banams still made and played by Santals are the Dhodro Banam, the Reta Banam and the Phentor Banam.  
 **Adivaani - Banam Raja - [Vimeo](https://vimeo.com/105100390)**
+<hr>
+**2 September 2014**  
+Along with high-frequency trading comes the requirement for traders themselves to be transported at high frequencies. Terry Morgan thinks of it as a railway – but I’m more inclined to view it as a colossal cable-router, through which digitised humans will be streamed.  
+**Will Self - London’s high-rise future: thrusting, exhilarating, yet strangely insubstantial - [The Guardian](https://www.theguardian.com/cities/2014/jun/09/londons-high-rise-future-skyline-will-self)**
+<hr>
+**2 September 2014**  
+Ever since the 1970s we’ve been in a situation of what I’d call wage repression in which real wages didn’t really rise at all. But that led to problems in the market. If you restrict wages you have a problem with aggregate demand. One way that problem was solved was by giving working people credit cards and allowing them to go into debt. Household debt in the US has tripled in the last 20 years or so.  
+**Interview with David Harvey - Exploring the logic of capital - [Socialist Review](http://socialistreview.org.uk/335/interview-david-harvey-exploring-logic-capital)**
+<hr>
+**2 September 2014**  
+L’urbanisation du pays est, cependant, anarchique. Les quartiers de yourtes s’y multiplient, notamment dans la banlieue de la capitale où la population nomade fraîchement arrivée installe sa demeure circulaire en l’entourant d’une palissade, sans que pour autant les infrastructures urbaines et les installations nécessaires à un confort, ne serait-ce que rudimentaire, soient présentes. Aujourd’hui, plus de la moitié des habitants n’ont pas accès à l’eau courante et le quotidien s’organise entre allers-retours aux rares puits privés et kiosques à eau et passages hebdomadaires aux bains publics. L’urbanisation rapide de certaines régions de la Mongolie a entraîné, en effet, une réduction de la disponibilité de l’eau pour l’usage domestique et industriel et de grandes difficultés d’assainissement, à Oulan-Bator notamment.
+
+Vivre dans cette ville, c’est aussi affronter la pollution atmosphérique de ses faubourgs, dans la mesure où les familles se chauffent encore majoritairement au charbon en hiver en raison de la proximité des mines. Enfin, toujours en lien avec cette urbanisation mal maîtrisée, la plupart des déchets ne sont pas traités sur place mais par des déchetteries aux abords de la ville qui ne font que rassembler les détritus. Aucune mesure d’envergure n’a été décidée à ce sujet afin qu’une prise en charge du problème soit assurée en termes environnementaux, mais aussi sanitaires, du fait du risque d’épidémies.  
+**Lucile Chombart de Lauwe and Justine Pribetich - Foyers (urbains) mongols - [Métropolitiques](https://metropolitiques.eu/Foyers-urbains-mongols.html)**
+<hr>
+**2 September 2014**  
+All those headlines about runaway prices and impossible rents: John Wilkes House is where you see the human fallout. A meltdown happens daily here: one that’s forced the council to experiment with a string of new, unusual and highly risky interventions in its housing market. Many of its policies are untried. Some are radical enough to startle even the experts.
+
+Just a few miles away from Westminster, Enfield’s local politicians are making a series of gambles that parliament’s big beasts wouldn’t dare try. They come with serious political and economic risk. But if even some of the things being tried by Enfield work out, they might help not only cases such as Christina’s, but also point to some radical solutions to Britain’s housing crisis.  
+**Aditya Chakrabortty - Enfield tears up rules in radical attempt to ease housing problem - [The Guardian](https://www.theguardian.com/cities/2014/sep/01/enfield-experiment-housing-problem-radical-solution)**
+<hr>
+**31 August 2014**  
+If all this suggests that I’m letting my ‘rapist’ off comparatively lightly, that is partly because in the intervening years the retelling of this story (to myself as much as to other people) has generated quite other interpretations of what went on, which coexist – and compete – with the account I’ve just given.
+
+(…) But what is really objectionable about the book has very little to do with its gender politics, much more with its arrogant scientism and messianic zeal for evolutionary biology as the key to unlock the whole of world culture, backed up by the shoddiest of arguments.
+
+(…) I have to admit that I have long been suspicious of any argument that starts with a chimp and ends with a human being; and I may, for this reason alone, be an unsuitably prejudiced commentator on any study in evolutionary biology.  
+**Mary Beard - On rape - [LRB](https://www.lrb.co.uk/the-paper/v22/n16/mary-beard/diary)**
+<hr>
+**[Older](https://oiuy88.wordpress.com/page/69/)**
