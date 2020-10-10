@@ -1487,7 +1487,7 @@ I did escape. Thank the God who definitely didn’t write the Good News Bible, I
 **Christina Patterson - The Good News Bible taught me the power of words, but also stole my youth - [The Guardian](https://www.theguardian.com/commentisfree/2014/aug/13/good-news-bible)**
 <hr>
 **9 September 2014**  
-Brasil, also known as Hy-Brasil or several other variants,[2] is a phantom island said to lie in the Atlantic Ocean[3] west of Ireland. Irish myths described it as cloaked in mist except for one day every seven years, when it becomes visible but still cannot be reached.  
+Brasil, also known as Hy-Brasil or several other variants, is a phantom island said to lie in the Atlantic Ocean west of Ireland. Irish myths described it as cloaked in mist except for one day every seven years, when it becomes visible but still cannot be reached.  
 **Brasil - [Wikipedia](https://en.wikipedia.org/wiki/Brasil_%28mythical_island%29)**
 <hr>
 **6 September 2014**  
