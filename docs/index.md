@@ -1,3 +1,14 @@
+**10 October 2020**
+
+What Facebook does is it locates people. So if you want to locate people, because you want to say something heterodox, which you might get punished for if you shouted it aloud, you can quietly find and talk to them.
+
+That’s not an unalloyed evil – this is how we got Black Lives Matter, non-binary gender identity and so on. People have been able to find one another and quietly share the fact that they disagreed with the overarching consensus and build a coalition.
+
+But you also get people locating people and saying: “Hey, you know, I’m not gonna openly call myself a racist when I’m running for office, but you and I, we’re both quite racist. And I just wanted you to know that.”
+
+So you can build a coalition of racists who would otherwise struggle to find one another because of the social risk that they take if they go public with their views, but it’s really not the same thing as mind control.  
+**Interview with Cory Doctorov - Technologists have failed to listen to non-technologists - [The Guardian](https://www.theguardian.com/media/2020/oct/10/cory-doctorow-technologists-have-failed-to-listen-to-non-technologists)**
+<hr>
 **9 October 2020**  
 While I’ve been working on this essay, I’ve made myself watch the clip of “Kimmel Takes on Gawker Stalker” several times. It feels bad, and also bruise-pressingly bad-good once I’ve forced myself to press play. I get the same feeling by walking down Crosby Street in Soho, where the feel of cobblestones under my heels can still give me sense-memory flashbacks to the year I spent working in that storefront office, when I was young and everything that was happening, bad and good, was at least happening to me for the first time.
 
