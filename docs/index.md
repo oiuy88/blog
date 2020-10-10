@@ -1339,4 +1339,157 @@ That is precisely how I see its future. As for religion: be careful. Many people
 (…) And since Pierre Bayard is right, we know there are books we have yet to read that will help us reflect on cultures different from our own. Little by little: that is how our European identity will become more profound.”  
 **Interview with Umberto Eco - It’s culture, not war, that cements European identity - [The Guardian](https://www.theguardian.com/world/2012/jan/26/umberto-eco-culture-war-europa)**
 <hr>
-**[More](https://oiuy88.wordpress.com/page/49/)**
+**29 November 2014**  
+“When I say “violence in white gloves”, I don’t mean the Mafia has become more lenient or that it faces any qualms of conscience. I mean the Mafia uses its economic power – enabled by financial markets that allow too many grey areas and too many tax havens – to strangle people, not physically, but in terms of their livelihoods. As the number of dead bodies diminishes, the number of living dead grows. There are many people in Italy who have had their job, hope and dignity removed by the Mafia.”  
+**Interview with Don Luigi Ciotti - This Italian priest has been pissing off the mafia for 20 years - [VICE](https://www.vice.com/en/article/8gdv7v/anti-mafia-priest-don-luigi-ciotti-476**
+<hr>
+**29 November 2014**  
+“An army of first-world wasters trapped in an Escher maze of immaturity…. Sure, perhaps basing this on children and housing ownership does play into a very traditional view of what maturity is, but in an economy that is almost entirely based on house prices, investing in property is probably your best chance of doing anything with your money other than endlessly blowing it on uncontrolled rent and misery repellents. And children must be one of the few remaining catalysts in this world that’ll convince you that the party needs to stop.”  
+**Clive Martin - This sad generation doesn't know when the party stops - [VICE](https://www.vice.com/en/article/3b7w79/when-does-the-party-stop)**
+<hr>
+**28 November 2014**  
+In may ways, *Incidents* is my way of saying, ‘let me take you on a walk, and we’ll start here, and as we’re walking I say, oh, look at that, wow look at that over there, look at this.’ And when the walk ends, that’s the experience.”  
+**Ananda Pellerin - Henry Wessel’s Incidents - [AnOther](https://origin.anothermag.com/art-photography/3809/henry-wessel-s-incidents)**
+<hr>
+**23 November 2014**  
+“Mon idée est assez naïve: je veux remplacer la vie. Pirater la chaîne et mettre mon propre machin à la place. Que mes personnages aient le temps d’exister comme s’ils étaient réels. J’aime les auteurs qui cherchent simplement à reproduire l’incandescence du vivant, les Balzac, Tolstoï, Franzen. Après avoir publié le premier tome, je me suis mis à lire ce qu’écrivent mes confrères. Je me suis rendu compte que ma démarche était assez peu française. Et assez peu moderne. Le XXe siècle me gonfle, à vouloir tout transformer en idée. En fait, je ne suis pas un écrivain français contemporain. Je suis du XIXe siècle. Ou un Russe. Ou un Américain, choisissez.”  
+**Interview with Sabri Louatah - [Le Nouvel Obs](https://bibliobs.nouvelobs.com/rentree-litteraire-2013/20130827.OBS4484/sabri-louatah-je-ne-suis-pas-un-ecrivain-francais-contemporain.html)**
+<hr>
+**23 November 2014**  
+We are Leon, whether we like it or not. We take this journey with him, in the designated time and space of the train compartment, where he is neither who he was at the departure point, nor who he will be on arrival. The sensation is of a porous neutrality, of the “between” stage that permits us to be ourselves, allowing thoughts and choices to surface.  
+**Keren Levy - Summer voyages: La Modification (A Change of Heart) by Michel Butor - [The Guardian](https://www.theguardian.com/books/booksblog/2013/aug/01/summer-voyages-la-modification-michel-butor)**
+<hr>
+**14 November 2014**  
+Beckett’s scorings tend to occur in clusters, but perhaps this tells us as much, if not more, about Proust’s method as about Beckett’s, for even the most devoted Proustian would admit that there are dull stretches on the long road we have to travel. Beckett refrains from such evidence of frustration as one is used to from his notebooks — the squiggles of Byzantine complexity, the doodles that throw up weird human figures — but there are a number of rather blank periods, especially in Le côté de Guermantes but also in ‘Un amour de Swann’ (except for the section concerned with music) and quite frequently in Sodome et Gomorrhe where Beckett has obviously found little to interest him.”  
+**John Pilling - Beckett’s ‘Proust’ - Florida State University - [Archive](https://web.archive.org/web/20170218162017/http://www.english.fsu.edu:80/jobs/num01/Num1Pilling.htm)**
+<hr>
+**10 November 2014**  
+When Honoré Daumier died in 1879, blind and penniless in a borrowed cottage, with few paintings sold and nearly all of his incomparable cartoons fading inside old French newspapers, the tributes put as much weight on his character as his art. “A man of genius and honesty,” said one; “an artist of conviction and a true republican” said another. His modesty, grace and generosity were praised.
+
+One might have expected more about his radical freedom as a painter, the beauty of his draughtsmanship – Picasso would later compare him to Michelangelo – or the originality of his satire. But he was remembered as a friend of the poor, among whom he was too uncomplaining ever to class himself, and as the unwavering voice of the people.
+
+It is only on seeing the Royal Academy’s long-awaited show that one realises how completely these qualities in fact characterise the work. No matter how subversive the lampoon, how bitter the tragedy, how dark the Paris drama, the abiding sense is of the artist’s boundless empathy.  
+**Laura Cumming - Review of Daumier: Visions of Paris - [The Guardian](https://www.theguardian.com/artanddesign/2013/nov/03/daumier-visions-of-paris-review-royal-academy)**
+<hr>
+**3 November 2014**  
+![William Gedney archive](https://idn.duke.edu/ark:/87924/r4mc8th04?w=640)  
+**William Gedney archive - [Duke University](https://repository.duke.edu/dc/gedney/gedst018001004)**
+<hr>
+**3 November 2014**  
+In the first case, not very much context is required because Western art is supposed to be universal, transcending national or geographic differences. It is Art. But Asian art is not Art, but ‘Asian art’, and therefore an informed understanding of the various contexts in which it is produced is essential for doing it full justice; it is always tied to its time and place. So, an Indian photographer cannot depict loss, absence or fear, but must always represent poverty-stricken and spiritualist, or liberalized and industrializing, India (suitably Bollywoodized). We hardly ever have books, photobook introductions or catalogue essays explaining what is Belgian, French, Canadian or American about Belgian, French, Canadian or American photography, because we can respond to Belgian, French, Canadian or American photographs as we respond to the Venus de Milo or Mona Lisa, without having to know about Classical Greece or Renaissance Italy.
+
+But not so with Asian photography. An entirely different approach to knowing, understanding and looking has to be constructed, mastered, disseminated and repeatedly invoked in order to bring such a category into the global field of vision. And this applies to not only those who are looking at it, showing it, collecting it and writing about it, but also to those who are making it. That is, Asian photographers themselves often end up internalizing this way of seeing and start producing work for it, and from within it, presenting their work, in books and in shows, according to its requirements. They readily accept the contexts in which their work is invariably read, and then start perpetuating those readings of their work and the assumptions that inform these readings.
+
+They end up producing work that could be written about, shown and taught within what has turned into readymade frames and perspectives. Non-Asia looks at Asia in a certain way, and therefore Asia also looks at, and projects, itself in that way. In the earlier centuries, this was called colonialism or imperialism; Edward Said had called it Orientalism. Now it is called Context, and the right-minded, well-intentioned, academically respectable sound of the word obscures the structures of commerce, knowledge and power that constitute this primacy of Context.  
+**Aveek Sen - The tyranny of context - [Fotomuseum Winterthur](https://www.fotomuseum.ch/en/explore/still-searching/articles/26917)**
+<hr>
+**1 November 2014**  
+![Hypnerotomachia Poliphili](https://oiuy88.files.wordpress.com/2014/11/6be2d-forest_5.gif?)  
+**Gifs from the Hypnerotomachia Poliphili -MIT Press (link missing)**
+<hr>
+**10 October 2014**  
+I inhabit a deep contradiction. I feel like an exile in the face of the growing Jewish ethnicisation that surrounds me, while at the same time the language in which I speak, write and dream is overwhelmingly Hebrew. When I find myself abroad, I feel nostalgia for this language, the vehicle of my emotions and thoughts. When I am far from Israel, I see my street corner in Tel Aviv and look forward to the moment I can return to it. I do not go to synagogues to dissipate this nostalgia, because they pray there in a language that is not mine, and the people I meet there have absolutely no interest in understanding what being Israeli means for me.  
+**Schlomo Sand - ‘I wish to resign and cease considering myself a Jew’ - [The Guardian](https://www.theguardian.com/world/2014/oct/10/shlomo-sand-i-wish-to-cease-considering-myself-a-jew)**
+<hr>
+**10 October 2014**  
+It’s notable, though, that even in settings where a redemptive ending is unlikely, the central investigator is invariably on the side of right. However pressured or frightened Boruvka, Rogas, Montalbano or Zen may be, they at least attempt to do the right thing. Even at its most sophisticated, the genre seems to reflect a belief that order will be restored.  
+**Mark Lawson - Crime's grand tour: European detective fiction - [The Guardian](https://www.theguardian.com/books/2012/oct/26/crimes-grand-tour-european-detective-fiction)**
+<hr>
+**3 October 2014**  
+The Monty Hall problem is a brain teaser, in the form of a probability puzzle, loosely based on the American television game show Let's Make a Deal and named after its original host, Monty Hall. The problem was originally posed (and solved) in a letter by Steve Selvin to the American Statistician in 1975. It became famous as a question from a reader's letter quoted in Marilyn vos Savant's "Ask Marilyn" column in Parade magazine in 1990:
+
+Suppose you're on a game show, and you're given the choice of three doors: Behind one door is a car; behind the others, goats. You pick a door, say No. 1, and the host, who knows what's behind the doors, opens another door, say No. 3, which has a goat. He then says to you, "Do you want to pick door No. 2?" Is it to your advantage to switch your choice?
+
+Vos Savant's response was that the contestant should switch to the other door. Under the standard assumptions, contestants who switch have a 2/3 chance of winning the car, while contestants who stick to their initial choice have only a 1/3 chance.  
+**Monty Hall problem - [Wikipedia](https://en.wikipedia.org/wiki/Monty_Hall_problem)**
+<hr>
+**1 October 2014**  
+The problem with Banach-Tarski is that we tend to think of it less in mathematical terms, and more in concrete terms. It’s often described as something like “You can slice up an orange, and then re-assemble it into two identical oranges“. Or “you can cut a baseball into pieces, and re-assemble it into a basketball.” Those are both obviously ridiculous. But they’re ridiculous because they violate one of our instinct that derives from the conservation of mass. You can’t turn one apple into two apples: there’s only a specific, finite amount of stuff in an apple, and you can’t turn it into two apples that are identical to the original. But math doesn’t have to follow conservation of mass in that way. A sphere doesn’t have a mass. It’s just an uncountably infinite set of points with a particular collection of topological relationship and geometric relationships.  
+**MarkCC - The Banach-Tarski non-paradox - Scientopia - [Archive](https://web.archive.org/web/20140719005908/http://scientopia.org/blogs/goodmath/2012/01/06/the-banach-tarski-non-paradox/)**
+<hr>
+**26 September 2014**  
+More specifically, the term refers to films that are influenced by the form and structure of a musical symphony, although it is debatable as to how many of the films labelled as city symphonies conform to this pattern. Indeed, the city symphony tag is so slippery that it’s questionable whether even its most famous example – Man with a Movie Camera (1929) – is a true city symphony.
+
+Movie Camera is famous for presenting a dazzling portrayal of urban city life, but when considered as part of the genre, the film is a cheat: it was actually shot in three different Ukrainian cities (Odessa, Kharkiv and Kiev) so, while as a piece of film-making it is magnificent (it was recently voted the greatest documentary of all time by Sight & Sound), it is arguable that the film’s concoction of a Ukrainian super-city robs us of one of the greatest joys of the genre: that of seeing a specific city as it was.  
+**Alex Barrett - The sound of silents: is it time to revive the 'city symphony' film genre? - [The Guardian](https://www.theguardian.com/cities/2014/sep/26/city-symphony-silent-films-genre-barbican)**
+<hr>
+**23 September 2014**  
+Die Situation ist paradox. Denn mit der Blutsversessenheit übernehmen die Stämme die Kategorien der Kolonisten. Es war die US-Regierung, die sich im Laufe des 19. Jahrhunderts darauf versteift hat, dass Indianertum eine Frage des Blutes sei. Aus dieser Zeit stammen auch pseudowissenschaftliche Begriffe wie das Halbblut.  
+**David Hesse - Geschlossene gesellschaft - [Tagesanzeiger](https://www.tagesanzeiger.ch/leben/gesellschaft/geschlossene-gesellschaft/story/14435288) - [Archive](https://web.archive.org/web/20150924144155/https://www.tagesanzeiger.ch/leben/gesellschaft/geschlossene-gesellschaft/story/14435288)**
+<hr>
+**22 September 2014**  
+If we watch stuff like The Riot Club we bend the knee to a lucrative global industry that has a dual function. Internationally, selling posh abroad (think: Downton Abbey, The Kings Speech, The Queen) has helped reduce the balance of payments deficit that resulted when the industries in which the working classes toiled were eliminated by the Conservative governments of the 1980s. And domestically? Selling posh helps reduce us to voyeurs of a pimped-up grotesquerie of toffs behaving badly.  
+**Stuart Jeffries - Posh Britain: will they always lord it over us? - [The Guardian](https://www.theguardian.com/lifeandstyle/2014/sep/21/-sp-posh-britain-the-riot-club-bullingdon-privilege)**
+<hr>
+**21 September 2014**  
+And she can no longer behold the huge partial form of the world    now
+
+She is watching her country lose its evoked master shape    watching it lose  
+And gain    get back its houses and peoples    watching it bring up  
+Its local lights    single homes    lamps on barn roofs    if she fell  
+Into water she might live    like a diver    cleaving    perfect    plunge  
+Into another    heavy silver    unbreathable    slowing    saving  
+Element”  
+**James L. Dickey - Falling - [Poetry Foundation](http://www.poetryfoundation.org/poem/171431) - [Archive](https://web.archive.org/web/2019*/https://www.poetryfoundation.org/poems/42716/falling-56d22155e5c45)**
+<hr>
+**20 September 2014**  
+And then the queen passed close to me and I stared at her. I am ashamed now to say it but I passed my eyes over her as a cannibal views his dinner, my gaze sharp enough to pick the meat off her bones.
+
+(…) She looked young: for a moment she had turned back from a figurehead into the young woman she was, before monarchy froze her and made her a thing, a thing which only had meaning when it was exposed, a thing that existed only to be looked at.  
+**Hilary Mantel - Royal Bodies - [LRB](https://www.lrb.co.uk/the-paper/v35/n04/hilary-mantel/royal-bodies)**
+<hr>
+**19 September 2014**  
+But, critically, furnishing weaponry always implies a choice of fighters to pull the trigger. This in turn has historically required an effort to identify and categorise certain groups, often – though not always – “minorities” like the Kurds, as distinctively reliable, martial proxies. Who gets the guns, and on what basis, is therefore the key question.  
+**Simon Jackson - Arming the Kurds builds on long history of proxy warfare in the Middle East - [The Conversation](https://theconversation.com/arming-the-kurds-builds-on-long-history-of-proxy-warfare-in-the-middle-east-31648)**
+<hr>
+**19 September 2014**  
+We are sitting in a long, low room beneath the eaves. Atkinson has sent his wife to bed. He himself is busy sharpening some tools at a little oilstone, smoking one of my cigars the while.  
+The air seems charged with thunder. I am writing this at a shaky table before the open window. The leg is cracked, and Atkinson, who seems a handy man with his tools, is going to mend it as soon as he has finished putting an edge on his chisel.  
+It is after eleven now. I shall be gone in less than an hour.  
+But the heat is stifling.  
+It is enough to send a man mad.  
+**WF Harvey - August Heat - [Annexed](http://www.annexed.net/box/augustheat/)
+<hr>
+**16 September 2014**  
+People in Timbuktu either adapt or leave. As the canal dried up and the winds of rain increasingly brought dust, Mahamane Alphady’s father – “or it could have been my grandfather” – dug a hole. So did all the other market gardeners, creating dozens of craters that fed on the canal’s run-off water. Vegetables grew on their walls. But every year they had to dig deeper. In 1973, his father gave up.  
+**Alex Duval Smith - Life in Timbuktu: how the ancient city of gold is slowly turning to dust - [The Guardian](https://www.theguardian.com/cities/2014/sep/16/-sp-life-timbuktu-mali-ancient-city-gold-slowly-turning-to-dust)**
+<hr>
+**16 September 2014**  
+This site is devoted to collecting the kind of unusual English spellings that have come to be called eggcorns. Eggcorn, the word, is a coinage that goes back to the excellent Language Log. The About page retraces the history of the term and offers more information on how this site came to be.
+
+The Eggcorn Database went public on February 15, 2005. It is a collaborative site in the sense that several contributors have access to it.  
+**[The Eggcorn Database](http://eggcorns.lascribe.net/)**
+<hr>
+**16 September 2014**  
+“If you ask a kid to write on “My Favorite Movie,” you’re opening the door to subjectivity, and hence to a flood of clichés.  
+**Jessica Lahey - How Steven King teaches writing - [The Atlantic](https://www.theatlantic.com/education/archive/2014/09/how-stephen-king-teaches-writing/379870/)**
+<hr>
+**11 September 2014**  
+Sie [im IS] wissen, dass wir im Westen das, was sie ins Netz stellen, kaum herausfiltern können. Die Brutalität ist nichts Neues, das Neue drückt sich in den medialen Mitteln aus. Was der IS betreibt, ist keine klassische Propaganda mehr. Das, was ins Netz gestellt wird, ist in der Regel jedenfalls nicht gefälscht — es ist ein Abbild der Wirklichkeit.  
+**Interview with Sherko Fatah - Einst war der Westen schick - [Die Zeit](https://www.zeit.de/2014/36/sherko-fatah-irak)**
+<hr>
+**10 September 2014**  
+The Washington-based Gulf Institute estimates that 95 per cent of Mecca’s millennium-old buildings have been demolished in the past two decades alone.  
+**Jerome Taylor - The photos Saudi Arabia doesn't want seen, and proof Islam's most holy relics are being demolished in Mecca - [The Independent](https://www.independent.co.uk/news/world/middle-east/photos-saudi-arabia-doesn-t-want-seen-and-proof-islam-s-most-holy-relics-are-being-demolished-mecca-8536968.html)**
+<hr>
+**10 September 2014**  
+Balthus is a difficult artist. Obnoxious. Cheesy. Stiff. Yet by fusing conservative technique with surreal setups and subject matter drawn from the deep reservoirs of sadomasochistic imagery and erotica, his painting is a world apart. I don’t love Balthus’s work, but I grant that all parts of the best examples are charged with something wild, almost half-human, some sleeping need, rage, frustration, and restraint.  
+**Jerry Saltz - Saltz on the painting the Metropolitan Museum of Art won’t show you - [Vulture](https://www.vulture.com/2013/09/saltz-on-balthus-the-guitar-lesson.html)**
+<hr>
+**10 September 2014**  
+La réalisation de Feuillade est très soignée. Le film est très rythmé, si bien qu’on ne voit pas passer les cinquante minutes de bobines.  L’ambiance que Feuillade met en place est tout simplement géniale et envoûtante. On pénètre ici dans le Paris du début du XXème siècle et on en découvre les aspects les plus mystérieux et les plus sordides. Le tout est couronné par une musique somptueuse parfois terrifiante, parfois drôle et souvent envoûtante et entraînante.
+
+Vous l’aurez compris, avec *Fantômas : A l’ombre de la guillotine*, on assiste à l’émergence d’un immense talent qu’est celui de Louis Feuillade. Il faut préciser que le style du réalisateur né également des détails scénaristiques (je rappelle que le scénario est rédigé par Feuillade lui-même qui se base sur le roman de Souvestre et d’Allain).  
+**Vince12 - Fantômas: A l'ombre de la guillotine - [Naveton Cinéma](http://navetoncinema.canalblog.com/archives/2013/02/23/26467928.html)**
+<hr>
+**10 September 2014**  
+I did escape. Thank the God who definitely didn’t write the Good News Bible, I did, eventually, escape. I didn’t get my youth back. No one can give you your youth back. But in the process of finding a faith and losing it, I did learn an awful lot. I learned, for example, that almost anyone can believe almost anything, and that arguing with them probably won’t change their mind. I learned that you can take a great work of literature – packed with stories, poetry and images that have shaped the face of western art – and turn it into something not just dangerous but banal.  
+**Christina Patterson - The Good News Bible taught me the power of words, but also stole my youth - [The Guardian](https://www.theguardian.com/commentisfree/2014/aug/13/good-news-bible)**
+<hr>
+**9 September 2014**  
+Brasil, also known as Hy-Brasil or several other variants,[2] is a phantom island said to lie in the Atlantic Ocean[3] west of Ireland. Irish myths described it as cloaked in mist except for one day every seven years, when it becomes visible but still cannot be reached.  
+**Brasil - [Wikipedia](https://en.wikipedia.org/wiki/Brasil_%28mythical_island%29)**
+<hr>
+**6 September 2014**  
+The banam is a stringed instrument. Banams are the lutes and the fiddles of the Santal people. They are made from locally available material–wood, vegetables and animal hide. The most common banams still made and played by Santals are the Dhodro Banam, the Reta Banam and the Phentor Banam.
+**Adivaani - Banam Raja - [Vimeo](https://vimeo.com/105100390)**
