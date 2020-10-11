@@ -7,7 +7,7 @@ Elsewhere, incandescent foetal sex rituals are on the rise. In Western cultures,
 **Arianne Shahvasi - Father of eternal fire - [LRB](https://www.lrb.co.uk/blog/2020/october/father-of-eternal-fire)**
 <hr>
 **11 October 2020**  
-![sea](https://oiuy88.files.wordpress.com/2020/10/imb_5p7ob5.gif?w=640)
+![sea](https://oiuy88.files.wordpress.com/2020/10/imb_5p7ob5.gif)
 <hr>
 **10 October 2020**
 
