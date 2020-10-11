@@ -6,6 +6,9 @@ Elsewhere, incandescent foetal sex rituals are on the rise. In Western cultures,
 (…) That a ‘gender reveal’ party should be the cause of a catastrophic fire is symbolically fitting. The political scientist Cara Daggett has described the rise of ‘petro-masculinity’: a pining for traditional power dynamics and the economies in which they have thrived. Racism, sexism and climate change denial are buttresses against a crumbling world.  
 **Arianne Shahvasi - Father of eternal fire - [LRB](https://www.lrb.co.uk/blog/2020/october/father-of-eternal-fire)**
 <hr>
+**11 October 2020**  
+![sea](https://oiuy88.files.wordpress.com/2020/10/imb_5p7ob5.gif?w=640)
+<hr>
 **10 October 2020**
 
 What Facebook does is it locates people. So if you want to locate people, because you want to say something heterodox, which you might get punished for if you shouted it aloud, you can quietly find and talk to them.
