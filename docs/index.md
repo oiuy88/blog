@@ -1,4 +1,4 @@
-**11 October 2020**  
+<h4>**11 October 2020**  
 The oilfield at Baba Gurgur, near Kirkuk, has been burning for at least four thousand years. It sits above fissures through which methane escapes from deep within the Earth’s crust, licking through gaps in the rocks and feeding the flames. Its name is Kurdish for ‘Father of Eternal Fire’, and it’s a possible site for the furnace into which Nebuchadnezzar casts Shadrach, Meshach and Abednego, the Jews who refuse to worship his golden idol, and are saved by divine intervention. Kurdish women used to travel to Baba Gurgur from miles around to pray that their child would be a son.
 
 Elsewhere, incandescent foetal sex rituals are on the rise. In Western cultures, ‘gender reveal’ events often involve setting off fireworks with pink or blue colorants. Last month, a spark from a gender reveal party in El Dorado, California set a neighbouring forest ablaze. Over the course of three weeks, the fire burned through 23,000 acres. A firefighter died tackling the blaze.
@@ -1544,3 +1544,4 @@ If all this suggests that I’m letting my ‘rapist’ off comparatively lightl
 **Mary Beard - On rape - [LRB](https://www.lrb.co.uk/the-paper/v22/n16/mary-beard/diary)**
 <hr>
 **[Older](https://oiuy88.wordpress.com/page/69/)**
+</h4>
