@@ -2,16 +2,12 @@
 ---
 
 @import "{{ site.theme }}";
-@media screen and (max-width:
-  480px){
-    .inner{
-      min-width: inherit !important;
-    }
+body {
+  box-sizing: border-box;
+  color:#444;
+  background: #212121;
+  font-size: 18px;
+  font-family: 'Myriad Pro', Calibri, Helvetica, Arial, sans-serif;
+  line-height: 1.5;
+  -webkit-font-smoothing: antialiased;
 }
-@media screen and (max-width:
-  320px){
-    .inner{
-      min-width: inherit !important;
-    }
-}
-body{color:#444}
