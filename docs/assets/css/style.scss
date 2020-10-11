@@ -1,16 +1,11 @@
----
----
-
 @import "{{ site.theme }}";
-@media screen and (max-width:
-  480px{
-    .inner{
+@media screen and (max-width:480px) {
+    .inner {
       min-width:inerit;
     }
 }
-@media screen and (max-width:
-  320px){
-    .inner{
+@media screen and (max-width: 320px) {
+    .inner {
       min-width:inherit;
     }
 }
