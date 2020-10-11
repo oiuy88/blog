@@ -1,4 +1,4 @@
-**11 October**  
+**11 October 2020**  
 Fakt ist: Mit einer Mischung aus Aufgekratztheit und Weltuntergangsrhetorik erzählt man uns in «The Social Dilemma», Polarisierung halte die Leute online – und weigert sich gleichzeitig, die polarisierenden Brandbeschleuniger klar zu benennen. Man bedauert, dass die Wahrheit langweiliger und weniger profitabel sei als Fake News – und nimmt es selber mit der Wahrheit nicht so genau. Etwa indem suggeriert wird, Social Media seien alleine schuld an Teenagerdepressionen.
 
 Der algorithmisch ermittelte ideale Zuschauer dieses Dokfilms muss ein gutgläubiger Idiot sein, der mit reisserischen Prophezeiungen gezielt geködert wird. Und schon sind wir wieder mittendrin im Teufelskreis aus Profitgier und einfältigem Menschenbild, den der Film vorgeblich durchbrechen wollte.  
@@ -1069,7 +1069,7 @@ And if you are paid by the EU or earn your living feeding off it you are probabl
 <hr>
 **8 February 2015**  
 Votre langage s’épuise, puis s’éteint lorsque surgit cette angoissante question : comment vais-je–m’en soritr si cette interlocutrice invisible représente l’avenir d’une communication qui dirigera ma vie et si moi-même, quoi que je fasse, je suis déjà membre de son environnement ?  
-**Eric Chauvier - La Crise commence où finit le langage, 2009
+**Eric Chauvier - La Crise commence où finit le langage, 2009**
 <hr>
 **8 February 2015**
 My picture looks like this: I improvise and find myself in the middle of a complexity beyond my ability to grasp; I am flying. I try to recreate that moment, using my memory or video, but it’s never the same – either I must improvise or I must accept that I can only find back 70% of the complexity.
@@ -1167,7 +1167,7 @@ The struggle raging today will likely produce no victor; it will leave probably 
 **Einstein and Nicolai - Manifesto to the Europeans, 1914 - [Eutopia](http://www.eutopiamagazine.eu/en/albert-einstein/columns/manifesto-europeans) (broken link)**
 <hr>
 **11 January 2015**  
-![Turkey](https://oiuy88.files.wordpress.com/2015/01/img_0063-1.png?w=640 "Turkey")  
+![Turkey](https://oiuy88.files.wordpress.com/2015/01/img_0063-1.png?w=200 "Turkey")  
 **Ustad Mansur - [Wikipedia](https://en.wikipedia.org/wiki/Ustad_Mansur)**
 <hr>
 **11 January 2015**  
@@ -1200,10 +1200,10 @@ The illustration captures ten miles of river, including London landmarks like th
 <hr>
 **8 January 2015**  
 For middle-class people, therefore, the spectacle of the city is seen through car windows. If a painter were to paint this middle-class view, as, for instance, so many nineteenth-century painters tried to paint Paris from the perspective of its new, cosmopolitan boulevards, it would not, accordingly, be smooth or intimate. There would be no dwelling, like the Impressionists, on details of costume and gesture, no slow rendition of café light falling on pedestrian faces, no capturing of the almost unnoticeable interactions that happen between strangers in a public place. No, it would be a strobe-lit succession of unrelated glimpses: the covers of Vogue and Autocar flashing in front of the window as a magazine seller rushes between vehicles stopped at a traffic light, the wind-rushed hair of a woman and her child on the back of a speeding motorbike, the one eye of a stray dog caught in the headlights, the glinting instruments of a wedding band – and the whirl of the dancing procession, and the improbable white of the groom’s horse – the lipstick of a cluster of eunuchs pressing their faces to the window, the slump of a human form under a blanket on the highway’s central divide, a face in another car momentarily strip-lit as veering headlights dazzle the rear-view mirror – and a host of impressions of other, unformed characters, animal and human, whose identity it is difficult to discern.  
-**Rana Dasgupta - Capital: A Portrait of Twenty-First Century India**  
+**Rana Dasgupta - Capital: A Portrait of Twenty-First Century India**
 <hr>
 **6 January 2015**  
-‘An English Journey’ was an exhibition of photography and video by Andrew Cross. Alluding to J.B. Priestley’s pre-war state-of-the-nation travelogue, ‘English Journey’, Cross surveys a representative cross-section of contemporary England by retracing the path of the old A34 from Southampton through the Midlands to Manchester. A video, ‘3 Hours from Here’, shot from the cab of one of the many long-distance lorries that continue to ply their trade up and down the route of one of England’s main mercantile arteries, formed the centerpiece of the touring exhibition, which, starting in Southampton, also proceeded to Rugby and then to Manchester. For each venue, as an accompaniment to the video, Cross added a number of photographs, specific to each locality, finding moments of local colour in what many of us might all too easily dismiss as an inherently utilitarian and anonymous landscape.
+‘An English Journey’ was an exhibition of photography and video by Andrew Cross. Alluding to J.B. Priestley’s pre-war state-of-the-nation travelogue, ‘English Journey’, Cross surveys a representative cross-section of contemporary England by retracing the path of the old A34 from Southampton through the Midlands to Manchester. A video, ‘3 Hours from Here’, shot from the cab of one of the many long-distance lorries that continue to ply their trade up and down the route of one of England’s main mercantile arteries, formed the centerpiece of the touring exhibition, which, starting in Southampton, also proceeded to Rugby and then to Manchester. For each venue, as an accompaniment to the video, Cross added a number of photographs, specific to each locality, finding moments of local colour in what many of us might all too easily dismiss as an inherently utilitarian and anonymous landscape.  
 **Andrew Cross - An English journey - [Film and Video Umbrella](https://www.fvu.co.uk/projects/an-english-journey)**
 <hr>
 **6 January 2015**  
@@ -1368,7 +1368,7 @@ That is precisely how I see its future. As for religion: be careful. Many people
 <hr>
 **29 November 2014**  
 “When I say “violence in white gloves”, I don’t mean the Mafia has become more lenient or that it faces any qualms of conscience. I mean the Mafia uses its economic power – enabled by financial markets that allow too many grey areas and too many tax havens – to strangle people, not physically, but in terms of their livelihoods. As the number of dead bodies diminishes, the number of living dead grows. There are many people in Italy who have had their job, hope and dignity removed by the Mafia.”  
-**Interview with Don Luigi Ciotti - This Italian priest has been pissing off the mafia for 20 years - [VICE](https://www.vice.com/en/article/8gdv7v/anti-mafia-priest-don-luigi-ciotti-476**
+**Interview with Don Luigi Ciotti - This Italian priest has been pissing off the mafia for 20 years - [VICE](https://www.vice.com/en/article/8gdv7v/anti-mafia-priest-don-luigi-ciotti-476)**
 <hr>
 **29 November 2014**  
 “An army of first-world wasters trapped in an Escher maze of immaturity…. Sure, perhaps basing this on children and housing ownership does play into a very traditional view of what maturity is, but in an economy that is almost entirely based on house prices, investing in property is probably your best chance of doing anything with your money other than endlessly blowing it on uncontrolled rent and misery repellents. And children must be one of the few remaining catalysts in this world that’ll convince you that the party needs to stop.”  
