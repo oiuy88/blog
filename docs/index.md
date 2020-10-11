@@ -1,3 +1,12 @@
+**11 October 2020**  
+The oilfield at Baba Gurgur, near Kirkuk, has been burning for at least four thousand years. It sits above fissures through which methane escapes from deep within the Earth’s crust, licking through gaps in the rocks and feeding the flames. Its name is Kurdish for ‘Father of Eternal Fire’, and it’s a possible site for the furnace into which Nebuchadnezzar casts Shadrach, Meshach and Abednego, the Jews who refuse to worship his golden idol, and are saved by divine intervention. Kurdish women used to travel to Baba Gurgur from miles around to pray that their child would be a son.
+
+Elsewhere, incandescent foetal sex rituals are on the rise. In Western cultures, ‘gender reveal’ events often involve setting off fireworks with pink or blue colorants. Last month, a spark from a gender reveal party in El Dorado, California set a neighbouring forest ablaze. Over the course of three weeks, the fire burned through 23,000 acres. A firefighter died tackling the blaze.
+
+(…) That a ‘gender reveal’ party should be the cause of a catastrophic fire is symbolically fitting. The political scientist Cara Daggett has described the rise of ‘petro-masculinity’: a pining for traditional power dynamics and the economies in which they have thrived. Racism, sexism and climate change denial are buttresses against a crumbling world.  
+**Arianne Shahvasi - Father of eternal fire - [LRB](https://www.lrb.co.uk/blog/2020/october/father-of-eternal-fire)**
+https://www.lrb.co.uk/blog/author/arianne-shahvisi
+<hr>
 **10 October 2020**
 
 What Facebook does is it locates people. So if you want to locate people, because you want to say something heterodox, which you might get punished for if you shouted it aloud, you can quietly find and talk to them.
@@ -42,7 +51,7 @@ These dense plays are concerned with a transition from a world of mystery to a w
 
 But most fundamentally, the trilogy uses all these interwoven narratives to tell a story that justifies the triumph of men over women. The institution of the all-male democratic law court, presided over by its male-biased judge, is presented as the only possible solution to the endless violence of the earlier world, one in which the experiences and voices of angry, wronged, grieving women were allowed to matter as much as those of men. The first two plays show the terrible cost, to both men and women, of a society in which men favour their bonds with one another over those with their mothers, wives and children. When Agamemnon kills his daughter, his men ‘tie a fetter round her/lovely cheeks and face,/a gag to hold her tongue from words to put her/house beneath a curse’. The final play reframes the problem of female suffering by including no human female characters: the powerful Furies are far more menacing than pitiable, and their semi-violent subordination by Athena, who threatens them with her father’s thunderbolt, is presented as the only possible way for the play’s vulnerable male human, Orestes, to be saved.
 
-(...) In a time when we’re thinking about the voices marginalised in modern democracies, and about whose histories we want to tell, it is worth turning back, with curious and critical eyes, to Aeschylus’ great dramatic meditation on the politics of exclusion. Perhaps, after this huge gap of time, we can begin to hear what the gagged, murdered Iphigenia might have wanted to say.  
+(…) In a time when we’re thinking about the voices marginalised in modern democracies, and about whose histories we want to tell, it is worth turning back, with curious and critical eyes, to Aeschylus’ great dramatic meditation on the politics of exclusion. Perhaps, after this huge gap of time, we can begin to hear what the gagged, murdered Iphigenia might have wanted to say.  
 **Emily Wilson - Ah, how miserable! - [LRB](https://www.lrb.co.uk/the-paper/v42/n19/emily-wilson/ah-how-miserable)**
 <hr>
 **5 October 2020**  
