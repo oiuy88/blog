@@ -9,8 +9,7 @@ Elsewhere, incandescent foetal sex rituals are on the rise. In Western cultures,
 **11 October 2020**  
 ![sea](https://oiuy88.files.wordpress.com/2020/10/imb_5p7ob5.gif)
 <hr>
-**10 October 2020**
-
+**10 October 2020**  
 What Facebook does is it locates people. So if you want to locate people, because you want to say something heterodox, which you might get punished for if you shouted it aloud, you can quietly find and talk to them.
 
 That’s not an unalloyed evil – this is how we got Black Lives Matter, non-binary gender identity and so on. People have been able to find one another and quietly share the fact that they disagreed with the overarching consensus and build a coalition.
