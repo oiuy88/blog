@@ -5,13 +5,13 @@
 @media screen and (max-width:
   480px){
     .inner{
-      min-width:inerit;
+      min-width:inerit !important;
     }
 }
 @media screen and (max-width:
   320px){
     .inner{
-      min-width:inherit;
+      min-width:inherit !important;
     }
 }
 body{color:#444;font-size:18px}
