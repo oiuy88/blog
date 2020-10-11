@@ -1451,11 +1451,11 @@ If we watch stuff like The Riot Club we bend the knee to a lucrative global indu
 **21 September 2014**  
 And she can no longer behold the huge partial form of the world    now
 
-She is watching her country lose its evoked master shape    watching it lose  
-And gain    get back its houses and peoples    watching it bring up  
-Its local lights    single homes    lamps on barn roofs    if she fell  
-Into water she might live    like a diver    cleaving    perfect    plunge  
-Into another    heavy silver    unbreathable    slowing    saving  
+She is watching her country lose its evoked master shape &nbsp;&nbsp;&nbsp;watching it lose  
+And gain &nbsp;&nbsp;&nbsp;get back its houses and peoples &nbsp;&nbsp;&nbsp;watching it bring up  
+Its local lights &nbsp;&nbsp;&nbsp;single homes &nbsp;&nbsp;&nbsp;lamps on barn roofs &nbsp;&nbsp;&nbsp;if she fell  
+Into water she might live &nbsp;&nbsp;&nbsp;like a diver &nbsp;&nbsp;&nbsp;cleaving &nbsp;&nbsp;&nbsp;perfect &nbsp;&nbsp;&nbsp;plunge  
+Into another &nbsp;&nbsp;&nbsp;heavy silver &nbsp;&nbsp;&nbsp;unbreathable &nbsp;&nbsp;&nbsp;slowing &nbsp;&nbsp;&nbsp;saving  
 Element”  
 **James L. Dickey - Falling - [Poetry Foundation](http://www.poetryfoundation.org/poem/171431) - [Archive](https://web.archive.org/web/2019*/https://www.poetryfoundation.org/poems/42716/falling-56d22155e5c45)**
 <hr>
@@ -1488,7 +1488,7 @@ The Eggcorn Database went public on February 15, 2005. It is a collaborative sit
 **[The Eggcorn Database](http://eggcorns.lascribe.net/)**
 <hr>
 **16 September 2014**  
-“If you ask a kid to write on “My Favorite Movie,” you’re opening the door to subjectivity, and hence to a flood of clichés.  
+If you ask a kid to write on “My Favorite Movie,” you’re opening the door to subjectivity, and hence to a flood of clichés.  
 **Jessica Lahey - How Steven King teaches writing - [The Atlantic](https://www.theatlantic.com/education/archive/2014/09/how-stephen-king-teaches-writing/379870/)**
 <hr>
 **11 September 2014**  
