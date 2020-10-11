@@ -1,3 +1,9 @@
+**11 October**  
+Fakt ist: Mit einer Mischung aus Aufgekratztheit und Weltuntergangsrhetorik erzählt man uns in «The Social Dilemma», Polarisierung halte die Leute online – und weigert sich gleichzeitig, die polarisierenden Brandbeschleuniger klar zu benennen. Man bedauert, dass die Wahrheit langweiliger und weniger profitabel sei als Fake News – und nimmt es selber mit der Wahrheit nicht so genau. Etwa indem suggeriert wird, Social Media seien alleine schuld an Teenagerdepressionen.
+
+Der algorithmisch ermittelte ideale Zuschauer dieses Dokfilms muss ein gutgläubiger Idiot sein, der mit reisserischen Prophezeiungen gezielt geködert wird. Und schon sind wir wieder mittendrin im Teufelskreis aus Profitgier und einfältigem Menschenbild, den der Film vorgeblich durchbrechen wollte.  
+**Daniela Janser - Wer lässt sich manipulieren? - [WOZ](https://www.woz.ch/-af32)**
+<hr>
 **11 October 2020**  
 The oilfield at Baba Gurgur, near Kirkuk, has been burning for at least four thousand years. It sits above fissures through which methane escapes from deep within the Earth’s crust, licking through gaps in the rocks and feeding the flames. Its name is Kurdish for ‘Father of Eternal Fire’, and it’s a possible site for the furnace into which Nebuchadnezzar casts Shadrach, Meshach and Abednego, the Jews who refuse to worship his golden idol, and are saved by divine intervention. Kurdish women used to travel to Baba Gurgur from miles around to pray that their child would be a son.
 
