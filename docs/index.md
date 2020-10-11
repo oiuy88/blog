@@ -5,7 +5,6 @@ Elsewhere, incandescent foetal sex rituals are on the rise. In Western cultures,
 
 (…) That a ‘gender reveal’ party should be the cause of a catastrophic fire is symbolically fitting. The political scientist Cara Daggett has described the rise of ‘petro-masculinity’: a pining for traditional power dynamics and the economies in which they have thrived. Racism, sexism and climate change denial are buttresses against a crumbling world.  
 **Arianne Shahvasi - Father of eternal fire - [LRB](https://www.lrb.co.uk/blog/2020/october/father-of-eternal-fire)**
-https://www.lrb.co.uk/blog/author/arianne-shahvisi
 <hr>
 **10 October 2020**
 
