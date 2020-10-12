@@ -1,4 +1,17 @@
 **12 October 2020**  
+Se fugires - não fujas - te perderás  
+Pra onde, pra onde, pra onde, para onde, para  
+onde, para onde, vais, aliás?  
+Tire o pé da lama tendo somente a quem te ama  
+Pela insistência com que chama, pela exuberância da chama  
+É proibido pisar na grama  
+Pela insistiencia das folhas na rama  
+E pela insistência da rima  
+Cria fama e deita-te na cama  
+Cria fama e deita-te na cama  
+**Caetano Veloso - O Conteúdo - [Letras](https://www.letras.mus.br/caetano-veloso/44756/)**
+<hr>
+**12 October 2020**  
 When people say “everything is going to stay the same, but get worse” it seems more likely they mean “everything will feel the same, but worse,” which brings about the question, to whom? Literary men have a tradition of declaring that feeling of unchanging banality to be a fact, all the way back to Solomon at least. Houellebecq, Solomon, et al, are actually engaged in some performative ironic juxtaposition with the undeniable condition of incarnated mutability. When they moan “It’s the same, just worse, such vanity” we get the signal to take up our part and disprove the poet’s lie, to challenge critically what we might have only absorbed ambiently. These guys do us a favor by compelling us to utter “no” to their parroting of the ruling class lie that things can’t or at least won’t change except for the worse. Ahistorical sameness is necessary to the status quo because to admit that all this bullshit of the ruinous social order is fleeting is fatal to their interests. We are to believe their domination is as natural and unchanging as the sun in the sky, which itself is a lot more changeable than we once thought.
 
 (…) I am not sure that beyond the work of radical poets, I’ve ever seen much mention in literature that a car requires gas, that the gas requires the oil industry, the oil industry requires imperialist war, etc. Instead, people in books move via invisible fuel in machines that are visible only as reflections of character, like a Ford Fiesta is not a material fact but a mere symbol of selfhood, running on biographical oil. I sometimes imagine some alien reader picking up a contemporary novel and thinking that everything about our species in our time and place was feelings, self-identification, self-interest, self-fulfillment, self-determination, that humans were made from the inside out, instead of the outside in, and that the only relation to objects we had was our curation of them.  
