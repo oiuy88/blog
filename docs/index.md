@@ -1667,17 +1667,4 @@ The telltale sign of such mythical, distant reporting is a distinct assuredness.
 Ein kleines, lebendiges hochkultiviertes Volk wird seit zweieinhalb Jahren vor den Augen der Welt bekriegt und vernichtet. Hilfe zu erwarten von unseren europäischen Nachbarn, wäre utopisch, Neutralität wäre realistisch, aber die westlichen Regierungen beteiligen sich alle bis heute an diesem Verbrechen. Deren marktgenormten Herrschern sind Waffenexporte wichtiger als das Leben Unschuldiger.  
 **Rafik Schami - Der Freiheit würdig sein - [Stern](https://www.stern.de/politik/ausland/rafik-schami-zum-buergerkrieg-in-syrien-der-freiheit-wuerdig-sein-3907194.html)**
 <hr>
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+**[Older](https://oiuy88.wordpress.com/page/79/)**
