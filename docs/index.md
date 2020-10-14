@@ -1,7 +1,7 @@
 **14 October 2020**  
-Gow, who runs a wildlife consultancy from a former sheep farm he is rewilding in Devon, is a charismatic talker who affects to despise both conservationists (“children and idiots whose idea of production is to do a lot of tedious reports that nobody ever reads, which cost a lot of money and sit on a shelf in a cupboard”) and farmers (“They say: ‘Poor me, we’re struggling on, despite the fact that somebody’s given us £40,000 of taxpayers’ money just to fuck about, own a pickup, shoot a few foxes and get pissed with my mates.’”).
+[Derek] Gow, who runs a wildlife consultancy from a former sheep farm he is rewilding in Devon, is a charismatic talker who affects to despise both conservationists (“children and idiots whose idea of production is to do a lot of tedious reports that nobody ever reads, which cost a lot of money and sit on a shelf in a cupboard”) and farmers (“They say: ‘Poor me, we’re struggling on, despite the fact that somebody’s given us £40,000 of taxpayers’ money just to fuck about, own a pickup, shoot a few foxes and get pissed with my mates.’”).
 
-(…) Gow admits to plenty of failures as well, and acknowledged that even this tiny mammal required major habitat restoration. “These animals are hanging on in a landscape that’s shattered. There are very few environments suitable for them. Then you begin to look at beavers. You see them living in Poland in vast swamps full of orchids, the huge clusters of frogs, the damsel and dragonflies, the small fish jumping in profusion in the dams. You see how around this animal, ‘the water saver’, all life revolves. It became abundantly obvious that this animal could be the mechanism that provided living space for so many other things.”  
+(…) Gow admits to plenty of failures as well, and acknowledged that even this tiny mammal [water vole] required major habitat restoration. “These animals are hanging on in a landscape that’s shattered. There are very few environments suitable for them. Then you begin to look at beavers. You see them living in Poland in vast swamps full of orchids, the huge clusters of frogs, the damsel and dragonflies, the small fish jumping in profusion in the dams. You see how around this animal, ‘the water saver’, all life revolves. It became abundantly obvious that this animal could be the mechanism that provided living space for so many other things.”  
 **Patrick Barkham - How maverick rewilders are trying to turn back the tide of extinction - [The Guardian](https://www.theguardian.com/environment/2020/oct/13/maverick-rewilders-endangered-species-extinction-conservation-uk-wildlife)**
 <hr>
 **12 October 2020**  
@@ -1574,4 +1574,110 @@ If all this suggests that I’m letting my ‘rapist’ off comparatively lightl
 (…) I have to admit that I have long been suspicious of any argument that starts with a chimp and ends with a human being; and I may, for this reason alone, be an unsuitably prejudiced commentator on any study in evolutionary biology.  
 **Mary Beard - On rape - [LRB](https://www.lrb.co.uk/the-paper/v22/n16/mary-beard/diary)**
 <hr>
-**[Older](https://oiuy88.wordpress.com/page/69/)**
+**26 August 2014**  
+Imagine an economy consisting of a single firm which has bought means of production and labour power for a total of $100, in order to produce a mass of commodities it intends to sell for $110, i.e. at a profit of 10 per cent. The problem is that the firm’s suppliers of constant and variable capital are also its only potential customers. Even if the would-be buyers pool their funds, they have only their $100 to spend, and no more. Production of the total supply of commodities exceeds the monetarily effective demand in the system. As [David] Harvey explains in The Limits to Capital, effective demand ‘is at any one point equal to C+V, whereas the value of the total output is C+V+S. Under conditions of equilibrium, this still leaves us with the problem of where the demand for S, the surplus value produced but not yet realised through exchange, comes from.’ An extra $10 in value must be found somewhere, to be exchanged with the firm if it is to realise its desired profit.  B
+**Benjamin Kunkel - How Much Is Too Much? - [LRB](https://www.lrb.co.uk/the-paper/v33/n03/benjamin-kunkel/how-much-is-too-much)**
+<hr>
+**25 August 2014**  
+Wherever they are, when first approached, archives are intimidating. Even if the setting does not unnerve you, you feel daunted at the enormity of the task: how to convert endless scribbles on paper into something that could pass for history. You must select a series—that is, one of the categories in which the documents are classified, usually according to the institution that originally produced them. But every series imprisons the researcher within boundaries that limit his or her perception of the subject. Even Alexis de Tocqueville, one of the greatest researchers in Farge’s field of study, exaggerated the centralizing tendency of the monarchy, because he worked within the C series, the correspondence between royal intendants and Versailles, which gives the illusion that the intendants had subjected everything within their territory to the long arm of the state.
+
+After you have committed yourself to a series and started ordering documents, the first box arrives. You undo a faded ribbon on one side, fold back the cover, and pull out the top dossier. You start reading, one document after another, one folder after another, one box after another. The sequence could go on forever. How to make sense of it all?
+
+Farge gives advice, much of it surprising. Copy out excerpts, she says. Not one or two, but hundreds. By copying you will absorb a turn of language, some of it peculiar to individuals, but all of it imbued with the tone of another era, which sets the past off from the present. I believe that [Arlette] Farge is right. Like her, I always arrived in the archives armed with index cards and pencils. I summarized documents and copied excerpts from them onto the cards, stored the cards in shoe boxes, and worked through the boxes when I drafted books. It’s a kind of marinating, an absorption through the pores.  
+**Robert Darnton - The good way to do history - [The New York Review](https://www.nybooks.com/articles/2014/01/09/good-way-history/)**
+<hr>
+**25 August 2014**  
+This is the sort of landscape that I assume all broad-readers have: an ever-growing and shifting system of half-located buildings waiting to be explored, built from and linked by paths of association that are half real and half drawn from chance personal experience. A vague map where we place the things that we feel are important. There is a concrete reality to the importance of the Cimetière Marin, and there is a personal reality, as there is with any text. This landscape is a product of the two.  
+**Tim Smith Laing - Cemetries by the sea - The Junket - [Archive](https://web.archive.org/web/20190115094102/http://thejunket.org/2012/05/archive/cemeteries-by-the-sea/)**
+<hr>
+**25 August 2014**  
+Essay by essay, Mercier [in Le Tableau de Paris] assembled a masterpiece of observational journalism and a repository of urban lore. We learn, for example, that Monsieur Maille, purveyor of the mustard still sold under his name, keeps below the counter a ‘vinegar’, much in demand from brides-to-be who worried that their chastity might be questioned on their wedding night: its ‘effects restore confidence in her and inspire it in her husband’.  
+**Jonathan Beckman - How to spend it - The Junket - [Archive](https://web.archive.org/web/20150912204923/http://thejunket.org/2014/07/issue-twelve/how-to-spend-it/)**
+<hr>
+**24 August 2014**  
+A very detrimental speech made by Richard Crossman, minister for housing during the 1960s, accused public architects of extravagance and of wasting public money on unnecessary luxuries such as balconies. So in order to achieve the “more than basic” and get around this philosophy of ostentatious parsimony, you had to make whatever you considered to be a desirable feature serve more than one function, if possible three functions. So all the balconies on Dawson’s Heights are fire escape balconies, but they are also private balconies because the escape door is a “break glass to enter” type lock so you can securely use your balcony for whatever you like, but you still have an escape route.  
+**Interview with Kate Macintosh - Utopia London - [Archive](https://web.archive.org/web/20180414191237/http://www.utopialondon.com:80/dawsons-heights)**
+<hr>
+**24 August 2014**  
+Few, if any, journalists would confess to consciously calling myths to convey the news, perhaps in part because so few of them are aware of the mythic thrust of their work. Instead, the ancient outlines express themselves spontaneously in copy, as reporters, who are usually voluminous readers, seek to infuse higher meaning to the disparate facts they’ve collected in their notebooks, even if they’re covering something as prosaic as a funeral or a legislative battle.”  
+**Jack Schafer - All the myths that are fit to print: Why your news feels familiar - [Reuters](http://blogs.reuters.com/jackshafer/2014/08/12/all-the-myths-that-are-fit-to-print-why-your-news-feels-familiar/)**
+<hr>
+**
+**24 August 2014**  
+[Derek Parfitt] doesn’t believe that his conscious mind is responsible for the important parts of his work. He pictures his thinking self as a government minister sitting behind a large desk, who writes a question on a piece of paper and puts it in his out-tray. The minister then sits idly at the desk, twiddling his thumbs, while in some back room civil servants labor furiously, come up with the answer, and place it in his in-tray.  
+**Larissa Macfarquar - How to be good - [The New Yorker](https://www.newyorker.com/magazine/2011/09/05/how-to-be-good)**
+<hr>
+**24 August 2014**  
+The meta-privatisation is the privatisation of the tax system itself… By moving from a system where public services are supported by progressive general taxation to a system where they are supported exclusively by the flat fees people pay to use them, they move from a system where the rich are obliged to help the poor to a system where the less well-off enable services that the rich get for what is, to them, a trifling sum. The commodity that makes water and power cables and airports valuable to an investor, foreign or otherwise, is the people who have no choice but to use them. We have no choice but to pay the price the toll-keepers charge. We are a human revenue stream; we are being made tenants in our own land, defined by the string of private fees we pay to exist here.  
+**James Meek - Sale of the century: the privatisation scam - [The Guardian](https://www.theguardian.com/politics/2014/aug/22/sale-of-century-privatisation-scam)**
+<hr>
+
+At the beginning I didn't think, ‘ah now well this is a great opportunity to do a Corbusier’. That came out of the actual function and the way it was developed and the structure, that’s what produced the structure. If offices or residential flats had been viable over Trinity Square at that time that’s what you’d have had. And the car park was the only other thing.
+
+(…) If I was doing it again I might be tempted to say can we get away with some offices over there. But I don’t think you’d get away with a large office development, certainly not at the moment. Luxury flats you could do.  
+**Owen Luder - In his own words - Gateshead MBC / [Youtube](https://www.youtube.com/watch?v=hDdaChaxpYw)**
+<hr>
+**24 August 2014**  
+The impression given by the 1983 [Jones and Woodward] Guide to the Architecture of London is of a healthy if lugubrious city, a liveable place even if, as Patrick Keiller later put it, most of the interesting people there would rather be somewhere else. By 2013, we still have most of that city, but it coexists with and is distorted by an increasingly suffocating and dystopian capital, where space is destroyed, prices are insane and ‘evaders will pay’.  
+**Owen Hattherly - Serried yuppiedromes - [LRB](https://www.lrb.co.uk/the-paper/v36/n16/owen-hatherley/serried-yuppiedromes)**
+<hr>
+**23 August 2014**  
+In his writing there is a hunger for life, for all of it, and a strong wish to not be accounted nothing when he knows himself to be so much. And this “so much” is neither a matter of ego about his writing nor an anxiety about his fame in New York or in Paris. It is about the incontestable fundamentals of a person: pleasure, sorrow, love, humor, and grief, and the complexity of the interior landscape that sustains those feelings.  
+**Teju Cole - Black Body: Rereading James Baldwin’s “Stranger in the Village” - [The New Yorker](https://www.newyorker.com/books/page-turner/black-body-re-reading-james-baldwins-stranger-village)**
+<hr>
+**18 August 2014**  )
+I think we are well advised to keep on nodding terms with the people we used to be, whether we find them attractive or not.  
+**Joan Didion - On keeping a notebook - [Archive](https://web.archive.org/web/20140207111427/http://www.h-ngm-n.com/storage/didion%20-%20on%20keeping%20a%20notebook.pdf)**
+<hr>
+**18 August 2014**  
+Over the last two years, I’ve managed to scare myself out of treating my notebook as a private space, and trick myself into using it only as a place to reflect on other peoples’ public thoughts under the guise of intellectualism.  
+**Sarah Gerard - On keeping a notebook - [The Paris Review](theparisreview.org/blog/2013/08/29/on-keeping-a-notebook-part-2/)**
+<hr>
+**18 August 2014**  
+I do not really know if I should continue these confessions. The publicist’s duty compels me to inform the public that rather too cretinous things are happening … too cretinous to be revealed and, I believe, on this all speculation relies—that an excess of cretinism does not allow these things to be revealed, that this is already too stupid to be expressed.
+
+(…) Portfolios full of engravings on the table. Large surfaces soaked in color on the walls. Compositions frozen in proud abstraction look down from the walls onto the sloppy human anthill; a mob of disorderly two-legged creatures tumbling past in wild disarray. On the walls: Astronomy. Logic. Composition. In the gallery: Confusion. Imbalance. An excess of unorganized detail, which overflows on all sides.”  
+**Witold Gombrowicz - Monday me - Extracts from Diary - [Paris Review](https://www.theparisreview.org/blog/2012/06/11/monday-me/)**
+<hr>
+**18 August 2014**  
+After applying “maximum consciousness” to his own life, [Gombrowicz] found it impossible “to meet the demands of Dasein and simultaneously have coffee and croissants for an evening snack. To fear nothingness, but to fear the dentist more. To be consciousness, which walks around in pants and talks on the telephone. To be responsibility, which runs little shopping errands downtown. To bear the weight of significant being, to instill the world with meaning and then return the change from ten pesos.”  
+**William Max Nelson - Not himself: On Witold Gombrowicz’s Diary - [Toronto Review of Books](https://www.torontoreviewofbooks.com/2012/11/not-himself-on-witold-gombrowiczs-diary/)**
+<hr>
+**18 August 2014**  
+Sometimes I’ll get a call or email from someone five years after the last contact and I’ll think, oh right, I hated that person. But they would never have known, of course. Let’s see if I still hate them. Very often I find that I don’t. Or that I hated them for a dumb reason. Or that they were having a bad day. Or much more likely, that I had been having a bad day.  
+**Paul Ford - How to be polite - [Medium](https://medium.com/s/story/how-to-be-polite-9bf1e69e888c) - [Archive](https://web.archive.org/web/20190304002758/https://medium.com/s/story/how-to-be-polite-9bf1e69e888c)**
+<hr>
+**18 August 2014**  
+For it is not, contrary to popular belief, a letter’s revelation about moments of high drama – adulterous love affairs, state secrets, murderous desires – that makes it so thrilling. It is, rather, its quiet unfolding of the chaos and contingency of everyday life.  
+**Kathryn Hughes - The ordinary lives of historical figures - [The Guardian](http://www.theguardian.com/commentisfree/2014/aug/18/nelson-letter-historical-figures-ordinary-lives)**
+<hr>
+**17 August 2014**  
+Die Bewohner dieser westlichen Exklave der Russischen Föderation [Kaliningrad] haben ein anderes Verhältnis zum Westen als die Moskauer, sie profitieren vom alltäglichen Austausch zwischen Ost und West, und deswegen sind sie auch gefährdeter durch Spannungen. Für die russische Stadt Kaliningrad, mit ihrer deutschen Vergangenheit, gilt das besonders. Kaliningrad hat in den vergangenen 20 Jahren versucht, in der Auseinandersetzung mit dem Deutschen eine eigene Identität zu finden. Das "Herz der Stadt" ist als russisch-westliches Amalgam gedacht.  
+**Susanne Beyer - Sprengkopf Europas - [Der Spiegel](https://www.spiegel.de/spiegel/print/d-128031753.html)**
+<hr>
+**17 August 2014**  
+So who are such bibliomemoirs for? If you are a reader, wouldn’t you rather be reading Moby-Dick than reading a book about a stranger who is reading Moby-Dick – and if you aren’t, why would you pick up a book about reading in the first place? These books, however endearing, funny and insightful, strike me as just another form of talking about books rather than actually reading them. Go to the text! I want to shout, bossily.  
+**Rachel Cooke - The woman who went to the library and read every book on the shelf - [The Observer](https://www.theguardian.com/books/2014/aug/16/phyllis-rose-the-shelf-library-book)**
+<hr>
+**17 August 2014**  
+The telltale sign of such mythical, distant reporting is a distinct assuredness. Confusion and vulnerability are stripped away, as are the subtleties and contradictions of life. People and places are reduced to simple narratives – good and evil, victim and killer. Such narratives can be easy to digest. But they tell us only a portion of the story.  
+**Anjan Sundaram - I watched the western media turn away from explaining the world - [The Guardian](https://www.theguardian.com/commentisfree/2014/aug/17/congo-reporting-media-war-anjan-sundaram)**
+<hr>
+**17 August 2014**  
+Ein kleines, lebendiges hochkultiviertes Volk wird seit zweieinhalb Jahren vor den Augen der Welt bekriegt und vernichtet. Hilfe zu erwarten von unseren europäischen Nachbarn, wäre utopisch, Neutralität wäre realistisch, aber die westlichen Regierungen beteiligen sich alle bis heute an diesem Verbrechen. Deren marktgenormten Herrschern sind Waffenexporte wichtiger als das Leben Unschuldiger.  
+**Rafik Schami - Der Freiheit würdig sein - [Stern](https://www.stern.de/politik/ausland/rafik-schami-zum-buergerkrieg-in-syrien-der-freiheit-wuerdig-sein-3907194.html)**
+<hr>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
