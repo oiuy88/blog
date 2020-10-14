@@ -1602,7 +1602,6 @@ A very detrimental speech made by Richard Crossman, minister for housing during 
 Few, if any, journalists would confess to consciously calling myths to convey the news, perhaps in part because so few of them are aware of the mythic thrust of their work. Instead, the ancient outlines express themselves spontaneously in copy, as reporters, who are usually voluminous readers, seek to infuse higher meaning to the disparate facts they’ve collected in their notebooks, even if they’re covering something as prosaic as a funeral or a legislative battle.”  
 **Jack Schafer - All the myths that are fit to print: Why your news feels familiar - [Reuters](http://blogs.reuters.com/jackshafer/2014/08/12/all-the-myths-that-are-fit-to-print-why-your-news-feels-familiar/)**
 <hr>
-**
 **24 August 2014**  
 [Derek Parfitt] doesn’t believe that his conscious mind is responsible for the important parts of his work. He pictures his thinking self as a government minister sitting behind a large desk, who writes a question on a piece of paper and puts it in his out-tray. The minister then sits idly at the desk, twiddling his thumbs, while in some back room civil servants labor furiously, come up with the answer, and place it in his in-tray.  
 **Larissa Macfarquar - How to be good - [The New Yorker](https://www.newyorker.com/magazine/2011/09/05/how-to-be-good)**
@@ -1611,7 +1610,7 @@ Few, if any, journalists would confess to consciously calling myths to convey th
 The meta-privatisation is the privatisation of the tax system itself… By moving from a system where public services are supported by progressive general taxation to a system where they are supported exclusively by the flat fees people pay to use them, they move from a system where the rich are obliged to help the poor to a system where the less well-off enable services that the rich get for what is, to them, a trifling sum. The commodity that makes water and power cables and airports valuable to an investor, foreign or otherwise, is the people who have no choice but to use them. We have no choice but to pay the price the toll-keepers charge. We are a human revenue stream; we are being made tenants in our own land, defined by the string of private fees we pay to exist here.  
 **James Meek - Sale of the century: the privatisation scam - [The Guardian](https://www.theguardian.com/politics/2014/aug/22/sale-of-century-privatisation-scam)**
 <hr>
-
+**24 August 2014**  
 At the beginning I didn't think, ‘ah now well this is a great opportunity to do a Corbusier’. That came out of the actual function and the way it was developed and the structure, that’s what produced the structure. If offices or residential flats had been viable over Trinity Square at that time that’s what you’d have had. And the car park was the only other thing.
 
 (…) If I was doing it again I might be tempted to say can we get away with some offices over there. But I don’t think you’d get away with a large office development, certainly not at the moment. Luxury flats you could do.  
