@@ -1,3 +1,9 @@
+**14 October 2020**  
+Gow, who runs a wildlife consultancy from a former sheep farm he is rewilding in Devon, is a charismatic talker who affects to despise both conservationists (“children and idiots whose idea of production is to do a lot of tedious reports that nobody ever reads, which cost a lot of money and sit on a shelf in a cupboard”) and farmers (“They say: ‘Poor me, we’re struggling on, despite the fact that somebody’s given us £40,000 of taxpayers’ money just to fuck about, own a pickup, shoot a few foxes and get pissed with my mates.’”).
+
+(…) Gow admits to plenty of failures as well, and acknowledged that even this tiny mammal required major habitat restoration. “These animals are hanging on in a landscape that’s shattered. There are very few environments suitable for them. Then you begin to look at beavers. You see them living in Poland in vast swamps full of orchids, the huge clusters of frogs, the damsel and dragonflies, the small fish jumping in profusion in the dams. You see how around this animal, ‘the water saver’, all life revolves. It became abundantly obvious that this animal could be the mechanism that provided living space for so many other things.”  
+**Patrick Barkham - How maverick rewilders are trying to turn back the tide of extinction - [The Guardian](https://www.theguardian.com/environment/2020/oct/13/maverick-rewilders-endangered-species-extinction-conservation-uk-wildlife)**
+<hr>
 **12 October 2020**  
 Se fugires - não fujas - te perderás  
 Pra onde, pra onde, pra onde, para onde, para  
