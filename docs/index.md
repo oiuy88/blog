@@ -1,3 +1,9 @@
+**20 October 2020**  
+Se han ido al garete la forma de relacionarnos físicamente con los demás, algo que define la convivencia, es decir retrata una cultura, un modo de vida. Vivimos redefiniendo nuestra idea de lo que es seguro, nuestra idea política del comportamiento común, nuestra idea de la obediencia y represión…
+
+Mi perplejidad no tiene límites al constatar con qué facilidad nos hemos adaptado a las nuevas circunstancias. Pero mayor es mi inquietud al constatar que ninguna de las personas que gobiernan nuestra sociedad ha dado una sola pista sobre cómo vamos a reconstruir lo que quede después de todo esto. Porque "todo esto" no son solo las muertes y los contagios, las vacunas y los remedios. "Todo esto" es otra forma de habitar el mundo.  
+**Cristina Fallarás - Absolutamente en cueros - [Público](https://blogs.publico.es/cristina-fallaras/2020/10/20/absolutamente-en-cueros/)**
+<hr>
 **18 October 2020**  
 Worms do not possess any sense of hearing. They took not the least notice of the shrill notes from a metal whistle, which was repeatedly sounded near them; nor did they of the deepest and loudest tones of a bassoon. They were indifferent to shouts, if care was taken that the breath did not strike them. When placed on a table close to the keys of a piano, which was played as loudly as possible, they remained perfectly quiet.
 
