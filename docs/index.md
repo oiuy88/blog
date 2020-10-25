@@ -1,4 +1,8 @@
 **25 October 2020**  
+AB: The Covid-19 outbreaks across nearly all large slaughterhouses made explicit something that has long been implicit: American meat has evolved to a scale where the human body is itself a major problem of production. This is true in towns that concentrate so many uniform, fragile animals that the bodies of workers become carriers of swine disease. It is also true within the meatpacking plants, which have become unendingly faster over the past few decades to the point where even some managers acknowledge they operate at the limits of average human physiology. From workers denied bathroom breaks because these plants cannot “accommodate” the human bladder, to repetitive injury compensation claims becoming a liability, so-called efficiency is out-of-control. And to state the obvious, what has upheld this unending search for more labor productivity is racism. This ranges from societal blind eyes turned to injury rates, to the racialized cheapness of labor that has resulted in little impetus for investment to automate farms or plants. Indeed, it continues to prop up this system right now — after the president of the United States ordered, with relatively minimal pushback, that workers must risk exposure to keep it afloat.  
+**A coversation between Alex Blanchette and Gabriel N. Rosenberg - Working pigs and humans in the age of Covid-19 - [Radical History Review](https://www.radicalhistoryreview.org/abusablepast/working-pigs-and-humans-in-the-age-of-covid-19/)**
+<hr>
+**25 October 2020**  
 ![Autumn](https://oiuy88.files.wordpress.com/2020/10/imb_aqjfch.gif?w=640)
 <hr>
 **24 October 2020**  
