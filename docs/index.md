@@ -1,3 +1,6 @@
+**25 October 2020**  
+![Autumn](https://oiuy88.files.wordpress.com/2020/10/imb_aqjfch.gif?w=640)
+<hr>
 **24 October 2020**  
 Reflecting on pregnancy's queerness, Maggie Nelson in The Argonauts describes the strangeness of a mother's automatic labor: "You are making the baby, but not directly. You are responsible for his welfare, but unable to control the core elements."8 When I was pregnant, I marveled that my body knew what to do, that it was, in effect, stitching together all the little pieces that would eventually become my daughter. My partner and I joke that I did a good job. Like Candace [in Ling Ma's Severance] my relationship to having a baby sat somewhere between wanting and not wanting, and the process of her growing felt separate from me. Not against my will, but also without any need of it, my body built my daughter. This labor of one body unfolding the programming of another seems as automated and zombified as factory work or the proverbial office job, and yet it can be recalcitrant before the capitalist ends that define reproductive labor — especially after the apocalypse (Nelson writes: "you can't reverse an unfolding or chromosomal difference by ingesting the right organic tea").  
 **Amy R Wong - On being a person of use - [Post45](http://post45.org/2020/10/on-being-a-person-of-use/)**
