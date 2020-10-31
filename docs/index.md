@@ -1,4 +1,8 @@
 **31 October 2020**  
+Voulez-vous juger Paris physiquement? Montez sur les tours de Notre Dame. La ville est ronde comme une citrouille ; le plâtre qui forme les deux tiers matériels de la ville, & qui est tout-à-la-fois blanc & noir, annonce qu’elle est bâtie de craie, & qu’elle repose sur la craie. La fumée éternelle qui s’élève de ces cheminées innombrables, dérobe à l’œil le sommet pointu des clochers ; on voit comme un nuage qui fe forme au-dessus de tant de maisons, & la transpirations de cette Ville est pour ainsi dire sensible.  
+**Louis-Sébastien Mercier - Tableau de Paris, 1783 - page 10 - [Archive](https://ia801006.us.archive.org/26/items/tableaudeparis13merc/tableaudeparis13merc.pdf)**
+<hr>
+**31 October 2020**  
 ![cars](https://oiuy88.files.wordpress.com/2020/10/imb_wpatzm.gif?w=640)
 <hr>
 **31 October 2020**  
