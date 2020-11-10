@@ -1,11 +1,11 @@
-**10 November 2020** 
+**10 November 2020**  
 [Turfgrass] is an environmental actor that forces behaviors, adaptations, and adjustments not only on individuals, but on whole municipal economies, and on the practices of firms that feed, grow, and tend them. Such an actor might be seen to behave and misbehave in its constant interaction with the homeowner and other species (earthworms, grubs, and dandelions most notably). To do so suggests understanding the lawn as autonomous, following its own rules and taking advantage of sociopolitical cir-
 cumstances even as it is itself taken advantage of by other actors.
 
 As theorist of science Bruno Latour describes microbes, for example, such an understanding raises questions about any simple explanation of political and economic history where one human actor or group is said to have their way over another. “There are not only social relations, relations between man and man. Society is not just made up of men, for everywhere microbes intervene and act.” Explaining their interactions in the world of humanity, Latour explains, these microbes “form alliances that complicate those relations in a terrible way.”
 
 And as we shall see, the demands of turfgrasses are an immediate and pro- found influence on homeowners, which set people about tasks that keep them busy throughout the growing season. Given the labor performed by people for other domesticated crop species, as Denis Wood has asked regarding cereal grains – especially maize, which cannot reproduce on its own without its human servants – “who’s to say which species has domesticated which?”  
-**Paul Robbins - Lawn People, 2017 - page 13
+**Paul Robbins - Lawn People, 2017 - page 13**
 <hr>
 **31 October 2020**  
 Voulez-vous juger Paris physiquement? Montez sur les tours de Notre Dame. La ville est ronde comme une citrouille ; le plâtre qui forme les deux tiers matériels de la ville, & qui est tout-à-la-fois blanc & noir, annonce qu’elle est bâtie de craie, & qu’elle repose sur la craie. La fumée éternelle qui s’élève de ces cheminées innombrables, dérobe à l’œil le sommet pointu des clochers ; on voit comme un nuage qui se forme au-dessus de tant de maisons, & la transpirations de cette Ville est pour ainsi dire sensible.  
