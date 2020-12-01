@@ -1,7 +1,11 @@
 **1 December 2020**  
 I remember making a lot of people angry writing about Brexit and saying you can’t just say that people are being tricked because they don’t vote for their material interests, they have other interests. I may not like those interests. I am relatively well off and whenever I vote for a Left-wing party, I vote against my material interest because it’s something else that I want. We shouldn’t think that working-class people are any different. And then, we have to unpick what those interests are.
 
-In Obama’s case, it was a lot of black people — for them the symbolism may not have been enough materially, but it was something. Similarly, there are people who think abortion is more important than anything else, or that the tiny sliver of racial privilege they have is more important than whether they lose or win, or other people get richer. In Britain, it’s mostly about white people who think ‘my sense of being British and Britain being independent are more important than whether this factory closes down, because this is not my factory anyway’.  
+In Obama’s case, it was a lot of black people — for them the symbolism may not have been enough materially, but it was something. Similarly, there are people who think abortion is more important than anything else, or that the tiny sliver of racial privilege they have is more important than whether they lose or win, or other people get richer. In Britain, it’s mostly about white people who think ‘my sense of being British and Britain being independent are more important than whether this factory closes down, because this is not my factory anyway’.
+
+(…) The media’s role is to inform and tell the truth. I don’t believe in objectivity. I think it’s a farcical notion. Stories demand choices, so it’s not objectivity it’s fairness, clearly.
+
+(…) I think the media has a job to do in terms of insisting on people’s humanity — not restoring their humanity because humanity never went away — but the media stripped people off their humanity.  
 **Interview with Gary Younge - [The Hindu](https://www.thehindu.com/opinion/interview/the-further-you-are-from-power-the-more-you-see/article30925158.ece)**
 <hr>
 **30 November 2020**  
