@@ -1,4 +1,4 @@
-**2 Decemeber 2020**  
+**2 December 2020**  
 There's an absolutely fascinating thing you could do on eBird where, if you search for a species like the wryneck, which is an ancient pastoral agricultural wood pasture species, and you go down to North Spain, which has just got this ancient agricultural system of hay meadows and free-roaming animals, and then you compare it almost to the border with France, you'll see whole species like nightingale, wryneck, red-backed shrike, whinchat, cuckoo, just tailing away in abundance as you get into France. That's because in the hills of Spain, nobody really wanted to change the farmland and in many ways they still haven't. So even in Western Europe, if you've got a big enough area that just went its own way and carried on with its old agricultural practices, you'll still find your vanished British farmland birds, your wrynecks, your shrikes, your turtle doves, cirl buntings, in really large numbers. So it's mainly a Western European phenomenon, but it's also a cultural phenomenon.  
 **Interview with Benedict Macdonald - [Inkcap](https://inkcap.substack.com/p/rebirding-complete-interview)**
 <Hr>
