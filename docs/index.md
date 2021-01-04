@@ -1,3 +1,11 @@
+**4 January 2020**  
+The problem with looking for galaxy-wide motion is that the Milky Way is a raging blizzard of stars, with astronomers looking outward from one of the snowflakes. So Peñarrubia and Petersen spent most of lockdown figuring out how to neutralize the motions of the Earth and the sun, and how to average out the motion of halo stars so that the halo’s outer fringe could serve as a stationary backdrop.
+
+When they calibrated the data in this way, they found that the Earth, the sun, and the rest of the disk in which they sit are lurching in one direction — not toward the Large Magellanic Cloud’s current position, but toward its position around a billion years ago (the galaxy is a lumbering beast with slow reflexes, Petersen explained).
+
+The sliding of the disk against the halo undermines a fundamental assumption: that the Milky Way is an object in balance. It may spin and slip through space, but most astronomers assumed that after billions of years, the mature disk and the halo had settled into a stable configuration.  
+**Charlie Wood - The new history of the Milky Way - [Quanta Magazine](https://www.quantamagazine.org/the-new-history-of-the-milky-way-20201215/)**
+<hr>
 **11 December 2020**  
 In all honesty, there’s no limit to my hunger for white mess. There’s only so much kitchen sink I can take before I start hankering for a prestige telly adaptation of a middlebrow novel. Watching the Academy gals – Kidman, Witherspoon, Dern, all the gang – have blazing rows in palatial settings has the same appeal as browsing Rightmove for properties I’ll never be able to afford. The appeal of white mess does not lie in some forelock-tugging fantasy of empathising with the trials and tribulations of our ruling class. What’s compelling is the fact that it’s so totally unreal: the rich live on an alien planet, and I am fascinated by their strange garb and customs.  
 **Ash Sarkar - ‘This Is How Money Acts’: the Limitless Appeal of ‘White Mess’ TV - [Novara Media](https://novaramedia.com/2020/12/09/this-is-how-money-acts-the-limitless-appeal-of-white-mess-tv/)**
