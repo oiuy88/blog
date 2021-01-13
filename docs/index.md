@@ -6,7 +6,6 @@ After commercial trawlers began operating around Pamban Island in the 1960s, loc
 <hr>
 **7 January 2020**  
 TC: Travelling while black! You know it as well as I do. We know the modest protections afforded by privilege. But sometimes you’re out there on the street and people don’t quite know how to read you. India remains a challenge. I had a terrible time in Vienna, years ago, and the same with Antwerp, also many years ago. Now I go to Antwerp all the time and, despite their resurgent right wing, have a much more comfortable time there. Of course, the people who invite me to places always treat me with warmth, respect and generosity. And I think even racists on the street know how to detect real marginality. They might not hassle me, but they’d hassle someone who shared my skin colour but not my confidence or clothing or bearing.
-Advertisement
 
 Racism is not a matter of what one person does to another. It is the way the logic of a society excludes large numbers of people while allowing for a few modest exceptions from that group. You and I are often among the exceptions, though I’ve been chased often enough by doormen of hotels in which I’m staying (in France, in Brazil) to know that I have to stay alert and give an immediate account of why, being a young black dude, I am where I am.  
 **Teju Cole talks to Taiye Selasi: ‘Afropolitan, American, African. Whatever’ - [The Guardian](https://www.theguardian.com/books/2016/aug/05/teju-cole-taiye-selasi-interview-known-strange-things)**
