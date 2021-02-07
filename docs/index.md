@@ -1,3 +1,7 @@
+**7 February 2020**  
+She takes on faith as a way of avoiding something else. Many people do that - perhaps most people do that - in order to avoid confronting love, and love involves the terrors of life and that involves the terrors of death. And faith is for many people a kind of hiding place, in which you won’t be hurt, in which you don’t have to think about yourself, in which you don’t have to change, in which you don’t have to be responsible for your neighbour.  
+**James Baldwin - Interview with Mavis Nicholson - Mavis on Four / [Youtube](https://www.youtube.com/watch?v=3Wht4NSf7E4)**
+<hr>
 **5 February 2020**  
 [Dan-el] Padilla argues that exposing untruths about antiquity, while important, is not enough: Explaining that an almighty, lily-white Roman Empire never existed will not stop white nationalists from pining for its return. The job of classicists is not to “point out the howlers,” he said on a 2017 panel. “To simply take the position of the teacher, the qualified classicist who knows things and can point to these mistakes, is not sufficient.” Dismantling structures of power that have been shored up by the classical tradition will require more than fact-checking; it will require writing an entirely new story about antiquity, and about who we are today.
 
