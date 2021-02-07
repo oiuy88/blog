@@ -1,4 +1,10 @@
 **7 February 2020**  
+The engineering and management of urban space also demarcates the limits of our political imagination by determining which narratives and experiences are even thinkable. The media construction of urban ghettos and prisons as "alternate universes" marks them as zones of unintelligibility, faraway places removed from the everyday white experience. Native American reservations are another example of "void" zones that white people can only access through the fantasy of media representations. What happen in these zones of abjection and vulnerability does not typically register in the white imaginary. In the instance that an "injustice" does register, it will have to be translated into more copmrehensible terms.
+
+When considering the public responses to Oscar Grant and Trayvon Martin, it seems significant taht these murders took place in spaces that are accessible to the white imaginary, which allows white people to narrativize the incidents in terms that are familiar to them.  
+**Jackie Wang - Carceral Capitalism, 2018 - pages 273-4**
+<hr>
+**7 February 2020**  
 She takes on faith as a way of avoiding something else. Many people do that - perhaps most people do that - in order to avoid confronting love, and love involves the terrors of life and that involves the terrors of death. And faith is for many people a kind of hiding place, in which you won’t be hurt, in which you don’t have to think about yourself, in which you don’t have to change, in which you don’t have to be responsible for your neighbour.
 
 (…) Because they’re panic-stricken. Because they don’t know what to do with this century, to do with what they made of the world. They don’t know what to do with the choices they made. Look at the world, the Christian world.  
