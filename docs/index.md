@@ -1,5 +1,7 @@
 **7 February 2020**  
-She takes on faith as a way of avoiding something else. Many people do that - perhaps most people do that - in order to avoid confronting love, and love involves the terrors of life and that involves the terrors of death. And faith is for many people a kind of hiding place, in which you won’t be hurt, in which you don’t have to think about yourself, in which you don’t have to change, in which you don’t have to be responsible for your neighbour.  
+She takes on faith as a way of avoiding something else. Many people do that - perhaps most people do that - in order to avoid confronting love, and love involves the terrors of life and that involves the terrors of death. And faith is for many people a kind of hiding place, in which you won’t be hurt, in which you don’t have to think about yourself, in which you don’t have to change, in which you don’t have to be responsible for your neighbour.
+
+(…) Because they’re panic-stricken. Because they don’t know what to do with this century, to do with what they made of the world. They don’t know what to do with the choices they made. Look at the world, the Christian world.  
 **James Baldwin - Interview with Mavis Nicholson - Mavis on Four / [Youtube](https://www.youtube.com/watch?v=3Wht4NSf7E4)**
 <hr>
 **5 February 2020**  
