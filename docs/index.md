@@ -6,6 +6,8 @@ The materiality of this first moment is so obvious that some of us take it for g
 The bigger the material mass, the more easily it entraps us: mass graves and pyramids bring history closer while they make us feel small. A castle, a fort, a battlefield, a church, all these things bigger than we that we infuse with the reality of past lives, seem to speak of an immensity of which we know little except that we are part of it. Too solid to be unmarked, too conspicuous to be candid, they embody the ambiguities of history. They give us the power to touch it, but not that to hold it firmly in our hands - hence the mystery of their battered walls. We suspect that their concreteness hides secrets so deep that no revelation may fully dissipate their silences. We imagine the lives under the martar, but how do we recognize the end of a bottomless silence?  
 **Michel-Rolph Trouillot - Silencing the Past, 1995/2015 - pages 29-30**
 <hr>
+**8 February 2020**  
+![snow](https://oiuy88.wordpress.com/2021/02/09/1902/)
 **7 February 2020**  
 The engineering and management of urban space also demarcates the limits of our political imagination by determining which narratives and experiences are even thinkable. The media construction of urban ghettos and prisons as “alternate universes” marks them as zones of unintelligibility, faraway places removed from the everyday white experience. Native American reservations are another example of “void” zones that white people can only access through the fantasy of media representations. What happen in these zones of abjection and vulnerability does not typically register in the white imaginary. In the instance that an “injustice” does register, it will have to be translated into more copmrehensible terms.
 
