@@ -6,7 +6,7 @@ The materiality of this first moment is so obvious that some of us take it for g
 The bigger the material mass, the more easily it entraps us: mass graves and pyramids bring history closer while they make us feel small. A castle, a fort, a battlefield, a church, all these things bigger than we that we infuse with the reality of past lives, seem to speak of an immensity of which we know little except that we are part of it. Too solid to be unmarked, too conspicuous to be candid, they embody the ambiguities of history. They give us the power to touch it, but not that to hold it firmly in our hands - hence the mystery of their battered walls. We suspect that their concreteness hides secrets so deep that no revelation may fully dissipate their silences. We imagine the lives under the martar, but how do we recognize the end of a bottomless silence?  
 **Michel-Rolph Trouillot - Silencing the Past, 1995/2015 - pages 29-30**
 <hr>
-**8 February 2020**  
+**8 February 2020**     
 ![snow](https://oiuy88.files.wordpress.com/2021/02/imb_0b5kqi.gif?w=600)
 <hr>
 **7 February 2020**  
