@@ -8,6 +8,7 @@ The bigger the material mass, the more easily it entraps us: mass graves and pyr
 <hr>
 **8 February 2020**  
 ![snow](https://oiuy88.files.wordpress.com/2021/02/imb_0b5kqi.gif?w=600)
+<hr>
 **7 February 2020**  
 The engineering and management of urban space also demarcates the limits of our political imagination by determining which narratives and experiences are even thinkable. The media construction of urban ghettos and prisons as “alternate universes” marks them as zones of unintelligibility, faraway places removed from the everyday white experience. Native American reservations are another example of “void” zones that white people can only access through the fantasy of media representations. What happen in these zones of abjection and vulnerability does not typically register in the white imaginary. In the instance that an “injustice” does register, it will have to be translated into more copmrehensible terms.
 
