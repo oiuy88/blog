@@ -96,7 +96,7 @@ As theorist of science Bruno Latour describes microbes, for example, such an und
 And as we shall see, the demands of turfgrasses are an immediate and pro- found influence on homeowners, which set people about tasks that keep them busy throughout the growing season. Given the labor performed by people for other domesticated crop species, as Denis Wood has asked regarding cereal grains – especially maize, which cannot reproduce on its own without its human servants – “who’s to say which species has domesticated which?”  
 **Paul Robbins - Lawn People, 2017 - page 13**
 <hr>
-**31 October 2020**
+**31 October 2020**  
 Voulez-vous juger Paris physiquement? Montez sur les tours de Notre Dame. La ville est ronde comme une citrouille ; le plâtre qui forme les deux tiers matériels de la ville, & qui est tout-à-la-fois blanc & noir, annonce qu’elle est bâtie de craie, & qu’elle repose sur la craie. La fumée éternelle qui s’élève de ces cheminées innombrables, dérobe à l’œil le sommet pointu des clochers ; on voit comme un nuage qui se forme au-dessus de tant de maisons, & la transpirations de cette Ville est pour ainsi dire sensible.  
 **Louis-Sébastien Mercier - Tableau de Paris, 1783 - page 10 - [Archive](https://ia801006.us.archive.org/26/items/tableaudeparis13merc/tableaudeparis13merc.pdf)**
 <hr>
