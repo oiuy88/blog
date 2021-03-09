@@ -1,3 +1,9 @@
+**9 March 2020**  
+As an affluent, self-selecting group of people move through spaces linked by technology, particular sensibilities spread, and these small pockets of geography grow to resemble one another, as Schwarzmann discovered: the coffee roaster Four Barrel in San Francisco looks like the Australian Toby’s Estate in Brooklyn looks like The Coffee Collective in Copenhagen looks like Bear Pond Espresso in Tokyo. You can get a dry cortado with perfect latte art at any of them, then Instagram it on a marble countertop and further spread the aesthetic to your followers.
+
+This confluence of style is being accelerated by companies that foster a sense of placelessness, using technology to break down geography. Airbnb is a prominent example. Even as it markets unique places as consumable goods, it helps its users travel without actually having to change their environment, or leave the warm embrace of AirSpace.  
+**Kyle Chayka - Welcome to Airspace: How Silicon Valley helps spread the same sterile aesthetic across the world - [The Verge](https://www.theverge.com/2016/8/3/12325104/airbnb-aesthetic-global-minimalism-startup-gentrification)**
+<hr>
 **3 March 2020**  
 To excite the proletariat to bring about an economic revolution, Karl Marx told them: “You have nothing to lose except your chains.” But the artful way in which the social and religious rights are distributed among the different castes, whereby some have more and some have less, makes the slogan of Karl Marx quite useless to excite the Hindus against the caste system. Castes form a graded system of sovereignties, high and low, which are jealous of their status and which know that if a general dissolution came, some of them stand to lose more of their prestige and power than others do. You cannot, therefore, have a general mobilisation of Hindus (to use a military expression) for an attack on the caste system.  
 **B.R. Ambedkar - Annihilation of Caste (1936) - paragraph 21.17**
