@@ -1,3 +1,11 @@
+**11 March 2020**  
+After several years of study at a monastery in Portugal, [José Lingna] Mendoça was appointed as an advocate of the Black Brotherhoods. This, according to Nafafé, is when records show that he had begun to work on a petition against slavery. Using his position, he enlisted the support of Black Brotherhoods across the Iberian peninsula, who lobbied the Vatican by writing letters that urged Pope Innocent XI to abolish slavery across the Atlantic. Pope Innocent XI, who held the title from 1676 to 1689, did, indeed, condemn the slave trade. With power in Europe divided at the time between the Crown and the Church, the Vatican had enormous power and influence over the fate of the enslaved.
+
+“It has never previously been established by historians that Mendonça was an African, which is really incredible – that in the 1600s you had this African man who travelled all over Europe to mobilise an activist movement for the liberation not only of Black Africans, but also of Indigenous people in the Americas,” says Nafafé.
+
+In 1684, Mendonça went to the Vatican, where he accused the nations involved in the trans-Atlantic slave trade of crimes against humanity. “What I’ve discovered is that this wasn’t just a petition, it was actually a court case, undertaken by Black Africans and supported through highly organised international solidarity,” explains Nafafé. “People always think that the legal abolitionist movement started in Britain, in the late 18th century, but Mendonça really forces us to review our positions on this.”  
+**Ana Naomi de Sousa - How Portugal silenced ‘centuries of violence and trauma’ - [Al Jazeera](https://www.aljazeera.com/features/2021/3/10/how-portugal-silenced-centuries-of-violence-and-trauma)**
+<hr>
 **9 March 2020**  
 As an affluent, self-selecting group of people move through spaces linked by technology, particular sensibilities spread, and these small pockets of geography grow to resemble one another, as Schwarzmann discovered: the coffee roaster Four Barrel in San Francisco looks like the Australian Toby’s Estate in Brooklyn looks like The Coffee Collective in Copenhagen looks like Bear Pond Espresso in Tokyo. You can get a dry cortado with perfect latte art at any of them, then Instagram it on a marble countertop and further spread the aesthetic to your followers.
 
