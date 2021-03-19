@@ -1,3 +1,7 @@
+**19 March 2020**  
+Local officials presiding over provinces with tiny-car workshops acknowledge the existence of tiny cars but seem a bit embarrassed talking about them, as they aren’t high-tech. Additionally, the tiny-car economy is now so big that any enforced ban on driving one would face formidable opposition. “You have to understand they are very scary,” Shenzhen Open Innovation Lab Executive Director David Li says, referring to the grandpas and grandmas who make up the tiny car’s target market. He is completely serious. “They’re Mao’s Red Guards. Do you think they care about officials cracking down on them when they’re in their 70s?”  
+**Lavender Au - The road to electric is filled with tiny cars - [Rest of World](https://restofworld.org/2021/tesla-vs-tiny-cars/)**
+<hr>
 **11 March 2020**  
 After several years of study at a monastery in Portugal, [José Lingna] Mendoça was appointed as an advocate of the Black Brotherhoods. This, according to Nafafé, is when records show that he had begun to work on a petition against slavery. Using his position, he enlisted the support of Black Brotherhoods across the Iberian peninsula, who lobbied the Vatican by writing letters that urged Pope Innocent XI to abolish slavery across the Atlantic. Pope Innocent XI, who held the title from 1676 to 1689, did, indeed, condemn the slave trade. With power in Europe divided at the time between the Crown and the Church, the Vatican had enormous power and influence over the fate of the enslaved.
 
