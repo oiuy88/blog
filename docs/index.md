@@ -11,7 +11,7 @@ This brings to mind another psychoanalyst: Wilfred Bion. He theorised that we ha
 **Moya Sarner - Brain fog: how trauma, uncertainty and isolation have affected our minds and memory - [The Guardian](https://www.theguardian.com/lifeandstyle/2021/apr/14/brain-fog-how-trauma-uncertainty-and-isolation-have-affected-our-minds-and-memory)**
 <hr>
 **10 April 2020**  
-![fallen blossom](https://oiuy88.wordpress.com/2021/04/25/1906?w=640)
+![fallen blossom](https://oiuy88.files.wordpress.com/2021/04/blossom1.jpg?w=640)
 <hr>
 **22 March 2020**  
 Recall general election Johnson of 2019. Think of the famous moment where he drove a JCB through a polystyrene wall on which was written the word “Gridlock”. His union jack-painted digger burst through the polystyrene with the legend “Get Brexit Done” written on its loader. His subsequent speech even mentioned custard: “I think it is time,” he said, smirking, “for the whole country – symbolically – to get in the cab of a JCB – of a custard colossus – and remove the current blockage that we have in our parliamentary system.” This scene must surely be as close to the actual circus as politics in the UK has ever come.
