@@ -10,6 +10,9 @@ For Cohen, the phenomenon of brain fog is an experience of one of the most distu
 This brings to mind another psychoanalyst: Wilfred Bion. He theorised that we have – at some moments – a will to know something about ourselves and our lives, even when that knowledge is profoundly painful. This, he called being in “K”. But there is also a powerful will not to know, a wish to defend against this awareness so that we can continue to live cosseted by lies; this is to be in “–K” (spoken as “minus K”). I wonder if the pandemic has been a reality some of us feel is too horrific to bear. The uncertainty, the deaths, the trauma, the precarity; perhaps we have unconsciously chosen to live in the misty, murky brain fog of –K rather than to face, to suffer, the true pain and horror of our situation. Perhaps we are having problems with our thinking because the truth of the experience, for many of us, is simply unthinkable.  
 **Moya Sarner - Brain fog: how trauma, uncertainty and isolation have affected our minds and memory - [The Guardian](https://www.theguardian.com/lifeandstyle/2021/apr/14/brain-fog-how-trauma-uncertainty-and-isolation-have-affected-our-minds-and-memory)**
 <hr>
+**10 April 2020**  
+![fallen blossom](https://oiuy88.wordpress.com/2021/04/25/1906?w=640)
+<hr>
 **22 March 2020**  
 Recall general election Johnson of 2019. Think of the famous moment where he drove a JCB through a polystyrene wall on which was written the word “Gridlock”. His union jack-painted digger burst through the polystyrene with the legend “Get Brexit Done” written on its loader. His subsequent speech even mentioned custard: “I think it is time,” he said, smirking, “for the whole country – symbolically – to get in the cab of a JCB – of a custard colossus – and remove the current blockage that we have in our parliamentary system.” This scene must surely be as close to the actual circus as politics in the UK has ever come.
 
