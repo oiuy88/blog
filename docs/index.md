@@ -1,3 +1,15 @@
+**2 August 2021**  
+“Rubia ven acá” — Blondie come here — González calls out to gather each of his cows, most of them a light brown or cinnamon color. He gives each of them a proper name, such as Rubia or Marella.
+
+When they graze on the mountaintop, he follows them on his mobile phone, thanks to GPS chips in their collars. Over the years, he says, “I saw forest fires each time more intense, since there is less flock cleaning the mountains,” he explains, walking in an area that was razed to the ground by a forest fire. That occurred in October of 2017, when 2,000 hectares (nearly 5,000 acres) burned in a week. Oak and birch skeletons still remain as testimonies to the blaze.
+
+“Before, we were 13 shepherds on this mountain,” González says. “Now I’m the only one on more than 100 hectares [250 acres].”
+
+His flock does the work that’s needed more than ever because the forest fire season just began. Last year, 14,805 hectares (36,584 acres) burned in Galicia, more than in 2018 and 2019 combined, according to the latest governmental statistics.
+
+Galicia has the highest density of forest fires and largest burned area in Europe, according to USC research coordinated by Mosquera-Losada. “There are three conditions that make fires happen: temperature over 30°[C, or 86°F], 30-plus percent humidity, and wind speeds superior to 30 km/h [19 mph],” she says. “These conditions are more frequent due to climate variability.”  
+**Monica Pelliccia - Spanish farmers fight forest fires with agroforestry (and many sheep) - [Mongabay](https://news.mongabay.com/2021/07/spanish-farmers-fight-forest-fires-with-agroforestry-and-many-sheep/)**
+<hr>
 **10 July 2021**  
 Il n’y avait, ce soir-là, au Kitty O’Shea’s, quasiment que des gens qui travaillaient pour la Commission européenne, ou, si ce n’est directement pour elle, pour ou autour de l’Europe, et je me suis soudain rendu compte, à un moment de la soirée, que j’étais entouré d’eurocrates. C’était eux, les eurocrates, ces jeunes gens qui s’amusaient autour de moi dans ce pub irlandais, c’était eux, les eurocrates, ces jeunes gens élégants, intelligents, instruits, qui parlaient toutes les langues, qui étaient cultivés et qui exercent des métiers passionnants dans les domaines les plus variés. C’etait eux, ces couples radieux, rieurs, épanouis, qui commandaient des pintes de Kilkenny au comptoir et qui piochaient un morceau de pecorino au buffet.”  
 **Jean-Philippe Toussaint - La Clé USB, 2019 - page 69**
