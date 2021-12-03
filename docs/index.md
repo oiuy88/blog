@@ -1,3 +1,7 @@
+**3 December 2021**  
+Web 2.0, though, has increasingly become a way for tech companies to reduce the infinitely scalable nature of the internet to essentially fourteen platforms: Facebook, Instagram, WhatsApp, iMessage in the US, Google, YouTube, Netflix, TikTok, Twitter, Pinterest, Reddit, Amazon, and the Apple and Android app stores. Within a matter of 15 years, a hard-to-use and oftentimes boring internet, consisting of websites, blogs, P2P sharing sites, open protocols like email and RSS, and basic file hosting sites has become an easy-to-use and exciting internet where everything is brought to you. Even searching now is not something you do actively, but, instead, a game of how many letters of what you’re looking for do you need to type before Google fills in the rest. What if one day you open it and it already knows what you were going to search?  
+**Ryan Broderick - My Roblox landlord wears Gucci - [Garbage Day](https://www.garbageday.email/p/my-roblox-landlord-wears-gucci)**
+<hr>
 **2 August 2021**  
 “Rubia ven acá” — Blondie come here — González calls out to gather each of his cows, most of them a light brown or cinnamon color. He gives each of them a proper name, such as Rubia or Marella.
 
