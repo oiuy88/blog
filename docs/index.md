@@ -1,3 +1,7 @@
+**2 January 2022**  
+People love to make up medical-sounding terms like “productivity dysmorphia” and “millennial burnout” to describe their participation in workplace norms; to talk about capitalism using the language of physical harm or wild animals – “crushed under capitalism’s boots”, “ground beneath the impossible spokes of capitalism’s wheels”, “the gaping maw of capitalism”, “the gnashing teeth of capitalism”, “capitalism’s pickaxe” – and to frame things that are essentially leisure activities (reading fiction, going to a gallery) as arduous demands in tirades about the ills of productivity culture and the societal demands for self-improvement.  
+**Rachel Connolly - Nobody Cares What Your New Year Resolutions Are, So You Might As Well Do Something You Enjoy - [Novara Media](https://novaramedia.com/2021/12/31/nobody-cares-what-your-new-year-resolutions-are-so-you-might-as-well-do-something-you-enjoy/)**
+<hr>
 **1 January 2022**  
 And this is why the future, be it NFTs or Memoji or the howling existential horror of the Metaverse, looks so ugly and boring: it reflects the stunted inner lives of the finance and technology professionals who produced it. As the visual manifestation of cryptocurrency, NFT art combines the nuanced social awareness of computer programmers with the soulful whimsy of hedge fund managers. It is art for people whose imaginations have been absolutely captured by a new kind of money you can do on the computer.
 
