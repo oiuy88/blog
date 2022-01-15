@@ -3,7 +3,7 @@ Again, I had mentioned Richard's *Native Son* at the end of the essay because it
 **James Baldwin - Alas, Poor Richard - Nobody Knows My Name, 1991 / 1954 - page 161**
 <hr> 
 **15 January 2022**  
-![pigeon](https://oiuy88.files.wordpress.com/2022/01/imb-jbwha5.gif?w=640) 
+![pigeon](https://oiuy88.files.wordpress.com/2022/01/imb-40t0c6.gif?w=640&zoom=2?w=640) 
 <hr>
 **4 January 2022**  
 Cities begin in the mind. Or so proposed Elias Canetti, a novelist and social philosopher often written off as one of those offbeat mid-century central European thinkers no one knows quite what to do with. Canetti speculated that Palaeolithic hunter-gatherers living in small communities must, inevitably, have spent time wondering what larger ones would be like. Proof, he felt, was on the walls of caves, where they faithfully depicted herd animals that moved together in uncountable masses. How could they not have wondered what human herds might be like, in all their terrible glory? No doubt they also considered the dead, outnumbering the living by orders of magnitude. What if everyone who'd ever died were all in one place? What would that be like? These 'invisible crowds', Canetti proposed, were in a sense the first human cities, even if they existed only in the imagination.
