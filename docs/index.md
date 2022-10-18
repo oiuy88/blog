@@ -1,3 +1,7 @@
+**18 October**  
+On m’a dit que la littérature ne devait jamais se répéter et je ne veux écrire que la même histoire, encore et encore, y revenir jusqu’à ce qu’elle laisse apercevoir des fragments de sa vérité, *y creuser un trou après l’autre jusqu’au moment où ce qui se cache derrière commencera à suinter*.  
+**Édouard Louis - Combats et métamorphoses d’une femme, page 19 - 2021**
+<hr>
 **16 September**  
 Outside of his Victorian castles and fake Georgian homes, such as the hideous early-twentieth-century heap of Buckingham Palace, Charles will never have been able to walk freely around a building. Constantly guarded and chaperoned, he has never once in his life been able to walk freely around a city, either. Buildings and towns to him are just pictures, and they are either ugly pictures or pretty pictures. Our role is to be the picturesque little figures in these pretty pictures: ploughing, weaving, but never thinking.  
 **Owen Hatherley - King Charles has some very strange ideas about how cities should look - [Jacobin](https://jacobin.com/2022/09/king-charles-architecture-cities-poundbury-krier-conservative)**
