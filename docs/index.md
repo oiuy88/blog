@@ -1,3 +1,7 @@
+**27 October**  
+To put it bluntly, I don’t think hope is a scientific category. And I don’t think that people fight or stay the course because of hope, I think people do it out of love and anger. Everybody always wants to know: Aren’t you hopeful? Don’t you believe in hope? To me, this is not a rational conversation. I try and write as honestly and realistically as I can. And you know, I see bad stuff. I see a city decaying from the bottom up. I see the landscapes that are so important to me as a Californian dying, irrevocably changed. I see fascism. I’m writing because I’m hoping the people who read it don’t need dollops of hope or good endings but are reading so that they’ll know what to fight, and fight even when the fight seems hopeless.  
+**Interview with Mike Davis - [LA Times](https://www.latimes.com/lifestyle/image/story/2022-07-25/mike-davis-reflects-on-life-activism-climate-change-bernie-sanders-aoc-los-angeles-politics)**
+<hr>
 **18 October**  
 On m’a dit que la littérature ne devait jamais se répéter et je ne veux écrire que la même histoire, encore et encore, y revenir jusqu’à ce qu’elle laisse apercevoir des fragments de sa vérité, *y creuser un trou après l’autre jusqu’au moment où ce qui se cache derrière commencera à suinter*.  
 **Édouard Louis - Combats et métamorphoses d’une femme, page 19 - 2021**
